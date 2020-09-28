@@ -8,3 +8,4 @@
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
+* Ishmael de Daniel Quinns (pdf dispo dans le git)
