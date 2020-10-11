@@ -5,7 +5,7 @@
 
 * https://www.theguardian.com/commentisfree/2016/dec/19/life-without-technology-rejecting-technology
   * Meme auteur https://www.theguardian.com/profile/mark-boyle
-* [2 concepts de liberté différent : libéraux et anarchistes](https://www.infolibertaire.net/%E2%98%85-liberte-des-liberaux-et-liberte-des-anarchistes/)
+* [2 concepts de liberté différente : libéraux et anarchistes](https://www.infolibertaire.net/%E2%98%85-liberte-des-liberaux-et-liberte-des-anarchistes/)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
