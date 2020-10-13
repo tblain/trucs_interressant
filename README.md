@@ -15,3 +15,4 @@
 ### Vidéos
 * [John Zerzan: On Modernity and the Technosphere](https://www.youtube.com/watch?v=3I9QJVNas5k)
 * [What is DEEP ECOLOGY? a concept all environmentalists should know](https://www.youtube.com/watch?v=xoKvBqssXf4)
+* [L'école du chat noir : l'anarchisme](https://www.youtube.com/watch?v=U3Rs7Pjd8gM)
