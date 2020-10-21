@@ -6,7 +6,7 @@
 * https://www.theguardian.com/commentisfree/2016/dec/19/life-without-technology-rejecting-technology
   * Meme auteur https://www.theguardian.com/profile/mark-boyle
 * [2 concepts de liberté différente : libéraux et anarchistes](https://www.infolibertaire.net/%E2%98%85-liberte-des-liberaux-et-liberte-des-anarchistes/)
-* [David Graeber - Give it away] (https://theanarchistlibrary.org/library/david-graeber-give-it-away), sorte d'intro a l'economie du dons et parle des mouvements philosophiques etant a son l'origine
+* [David Graeber - Give it away](https://theanarchistlibrary.org/library/david-graeber-give-it-away), sorte d'intro a l'economie du dons et parle des mouvements philosophiques etant a son l'origine
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
@@ -17,3 +17,4 @@
 * [John Zerzan: On Modernity and the Technosphere](https://www.youtube.com/watch?v=3I9QJVNas5k)
 * [What is DEEP ECOLOGY? a concept all environmentalists should know](https://www.youtube.com/watch?v=xoKvBqssXf4)
 * [L'école du chat noir : l'anarchisme](https://www.youtube.com/watch?v=U3Rs7Pjd8gM)
+* [David Graeber : Jamais la société humaine n'a passé autant de temps à remplir des formulaires](https://www.youtube.com/watch?v=y-G7461XhMs)
