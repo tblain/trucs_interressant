@@ -18,3 +18,4 @@
 * [What is DEEP ECOLOGY? a concept all environmentalists should know](https://www.youtube.com/watch?v=xoKvBqssXf4)
 * [L'école du chat noir : l'anarchisme](https://www.youtube.com/watch?v=U3Rs7Pjd8gM)
 * [David Graeber : Jamais la société humaine n'a passé autant de temps à remplir des formulaires](https://www.youtube.com/watch?v=y-G7461XhMs)
+* [Notes de lecture sur: Dette, 5000 ans d'histoire (David Graeber)](https://www.youtube.com/watch?v=24X49S1ajcQ)
