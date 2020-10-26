@@ -20,3 +20,4 @@
 * [David Graeber : Jamais la société humaine n'a passé autant de temps à remplir des formulaires](https://www.youtube.com/watch?v=y-G7461XhMs)
 * [Notes de lecture sur: Dette, 5000 ans d'histoire (David Graeber)](https://www.youtube.com/watch?v=24X49S1ajcQ)
 * [David Graeber on a Fair Future Economy](https://www.youtube.com/watch?v=7YynqVvgZYI)
+* ["Pour une Anthropologie Anarchiste" de David Graeber](https://www.youtube.com/watch?v=Z9ApjcTxZKM)
