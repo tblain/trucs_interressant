@@ -22,3 +22,4 @@
 * [David Graeber on a Fair Future Economy](https://www.youtube.com/watch?v=7YynqVvgZYI)
 * ["Pour une Anthropologie Anarchiste" de David Graeber](https://www.youtube.com/watch?v=Z9ApjcTxZKM)
 * [Bullshit jobs (David Graeber)](https://www.youtube.com/watch?v=8cvPDiWkD6I&feature=youtu.be)
+* [Histoire de ta bêtise (François Bégaudeau)](https://www.youtube.com/watch?v=_eb3BFkj3Dg)
