@@ -7,6 +7,7 @@
   * Meme auteur https://www.theguardian.com/profile/mark-boyle
 * [2 concepts de liberté différente : libéraux et anarchistes](https://www.infolibertaire.net/%E2%98%85-liberte-des-liberaux-et-liberte-des-anarchistes/)
 * [David Graeber - Give it away](https://theanarchistlibrary.org/library/david-graeber-give-it-away), sorte d'intro a l'economie du dons et parle des mouvements philosophiques etant a son l'origine
+* [Texte de La Ronce](https://docs.google.com/document/d/1V6oWtihszT4Gl3jRM_HcseHwcvg1BrXvnzsomgqPGWg/edit)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
