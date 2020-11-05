@@ -24,3 +24,6 @@
 * ["Pour une Anthropologie Anarchiste" de David Graeber](https://www.youtube.com/watch?v=Z9ApjcTxZKM)
 * [Bullshit jobs (David Graeber)](https://www.youtube.com/watch?v=8cvPDiWkD6I&feature=youtu.be)
 * [Histoire de ta bêtise (François Bégaudeau)](https://www.youtube.com/watch?v=_eb3BFkj3Dg)
+
+### Images
+* [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
