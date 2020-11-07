@@ -14,6 +14,7 @@
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
 * Ishmael de Daniel Quinns (pdf dispo dans le git)
 * [Desert de anonymous](https://theanarchistlibrary.org/library/anonymous-desert)
+* (Défensue du Marxisme de Léon TROTSKY)
 
 ### Vidéos
 * [John Zerzan: On Modernity and the Technosphere](https://www.youtube.com/watch?v=3I9QJVNas5k)
@@ -26,6 +27,7 @@
 * [Bullshit jobs (David Graeber)](https://www.youtube.com/watch?v=8cvPDiWkD6I&feature=youtu.be)
 * [Histoire de ta bêtise (François Bégaudeau)](https://www.youtube.com/watch?v=_eb3BFkj3Dg)
 * [The Shock Doctrine by Naomi Klein - Review](https://www.youtube.com/watch?v=_PMkBy007VU&feature=emb_logo)
+* [(French) Playlist des vidéos de Franck Lepage](https://www.youtube.com/playlist?list=PLFePO0DghdicNrU0KytikJAV310b9i7Gz)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
