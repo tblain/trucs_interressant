@@ -29,6 +29,7 @@
 * [The Shock Doctrine by Naomi Klein - Review](https://www.youtube.com/watch?v=_PMkBy007VU&feature=emb_logo)
 * [(French) Playlist des vidéos de Franck Lepage](https://www.youtube.com/playlist?list=PLFePO0DghdicNrU0KytikJAV310b9i7Gz)
 * [Intro to Anarchy: Power & Violence | Philosophy Tube](https://www.youtube.com/watch?v=bCAUmh99hMI)
+* [Les guignols moquent les pharmaceutiques](VIDEO-2020-11-20-08-31-13.mp4)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
