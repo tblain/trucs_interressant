@@ -33,6 +33,7 @@
 * [Les guignols moquent les pharmaceutiques](VIDEO-2020-11-20-08-31-13.mp4)
 * [Capitalists Are Bad At Business](https://www.youtube.com/watch?v=yP9Oj65OweI)
 * [Society of the Spectacle: WTF? Guy Debord, Situationism and the Spectacle Explained | Tom Nicholas](https://www.youtube.com/watch?v=RGJr08N-auM)
+* [LPSR #5 - La société du spectacle - Guy Debord - Yann Kerninon](https://www.youtube.com/watch?v=ptR6IQwobf4)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
