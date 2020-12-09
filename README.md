@@ -9,6 +9,7 @@
 * [David Graeber - Give it away](https://theanarchistlibrary.org/library/david-graeber-give-it-away), sorte d'intro a l'economie du dons et parle des mouvements philosophiques etant a son l'origine
 * [Texte de La Ronce](https://docs.google.com/document/d/1V6oWtihszT4Gl3jRM_HcseHwcvg1BrXvnzsomgqPGWg/edit)
 * [Riot medicine](https://riotmedicine.net/)
+* [Peut-on détester la police?](https://lundi.am/IMG/pdf/253844818-peut-on-detester-la-police-ter-s.pdf)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
