@@ -10,6 +10,7 @@
 * [Texte de La Ronce](https://docs.google.com/document/d/1V6oWtihszT4Gl3jRM_HcseHwcvg1BrXvnzsomgqPGWg/edit)
 * [Riot medicine](https://riotmedicine.net/)
 * [Peut-on détester la police?](https://lundi.am/IMG/pdf/253844818-peut-on-detester-la-police-ter-s.pdf)
+* [La pédagogie libertaire](https://www.socialisme-libertaire.fr/2016/05/pedagogie-libertaire.html)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
