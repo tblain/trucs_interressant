@@ -12,6 +12,7 @@
 * [Peut-on détester la police?](https://lundi.am/IMG/pdf/253844818-peut-on-detester-la-police-ter-s.pdf)
 * [La pédagogie libertaire](https://www.socialisme-libertaire.fr/2016/05/pedagogie-libertaire.html)
 * [La méritocratie, fabrique d'une société élitiste et hierarchisé ](https://www.socialisme-libertaire.fr/2015/03/la-meritocratie-fabrique-d-une-societe-elitiste-et-hierarchise.html)
+* [Les politiciens ne sont que des pions ](https://www.socialisme-libertaire.fr/2020/12/les-politiciens-ne-sont-que-des-pions.html)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
