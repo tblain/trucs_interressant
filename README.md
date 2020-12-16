@@ -38,6 +38,7 @@
 * [Capitalists Are Bad At Business](https://www.youtube.com/watch?v=yP9Oj65OweI)
 * [Society of the Spectacle: WTF? Guy Debord, Situationism and the Spectacle Explained | Tom Nicholas](https://www.youtube.com/watch?v=RGJr08N-auM)
 * [LPSR #5 - La société du spectacle - Guy Debord - Yann Kerninon](https://www.youtube.com/watch?v=ptR6IQwobf4)
+* [« La société du spectacle », par Patrick Marcolini (conférence vidéo sur Guy Debord, BNF, 2013)](https://www.youtube.com/watch?v=LAibRpDB9qM)
 * [François BÉGAUDEAU – La bourgeoisie, le capital & la liberté](https://www.youtube.com/watch?v=4gX5KpOboDo)
 
 ### Images
