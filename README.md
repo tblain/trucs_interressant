@@ -40,6 +40,7 @@
 * [LPSR #5 - La société du spectacle - Guy Debord - Yann Kerninon](https://www.youtube.com/watch?v=ptR6IQwobf4)
 * [« La société du spectacle », par Patrick Marcolini (conférence vidéo sur Guy Debord, BNF, 2013)](https://www.youtube.com/watch?v=LAibRpDB9qM)
 * [François BÉGAUDEAU – La bourgeoisie, le capital & la liberté](https://www.youtube.com/watch?v=4gX5KpOboDo)
+* [The Best Conversation on Leftist Strategy I've Ever Had ft. Anarchopac](https://www.youtube.com/watch?v=fH12TOZ-_Sg)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
@@ -47,3 +48,6 @@
 ### Citations
 * Le spectacle, c'est simplement le remplacement de la vie vraie, de ce surgissement original en chacun, vécu de première main, par une "impossibilité" d'avoir une expérience directe de la vie, car en tout lieu, "le vrai est un moment du faux", soit que l'aliénation (être étranger à soi-même) est généralisée et la réalité remplacée par un spectre (image) hideux, une "image" de celle-ci. À chaque époque, cette idéologie qui change de forme (religieuse, capitaliste ou communiste) mais pas d'essence, vient faire écran entre chaque être humain et son appréhension unique et originale de la réalité. Cette idéologie qui veut qu'un "bon" berger se croit toujours obligé de conduire les moutons.
  ~ D'un commentaire youtube
+ 
+ ### Liste de lecture
+ * [Zoe Baker : Anarchism Reading List](https://anarchopac.wordpress.com/2013/05/31/recommended-reading/) 
