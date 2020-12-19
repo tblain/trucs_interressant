@@ -41,6 +41,8 @@
 * [« La société du spectacle », par Patrick Marcolini (conférence vidéo sur Guy Debord, BNF, 2013)](https://www.youtube.com/watch?v=LAibRpDB9qM)
 * [François BÉGAUDEAU – La bourgeoisie, le capital & la liberté](https://www.youtube.com/watch?v=4gX5KpOboDo)
 * [The Best Conversation on Leftist Strategy I've Ever Had ft. Anarchopac](https://www.youtube.com/watch?v=fH12TOZ-_Sg)
+* [La commune de Paris - Henri Guillemin](https://www.youtube.com/watch?v=PwXwDp3Ze7Q)
+
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
