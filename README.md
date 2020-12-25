@@ -51,5 +51,12 @@
 * Le spectacle, c'est simplement le remplacement de la vie vraie, de ce surgissement original en chacun, vécu de première main, par une "impossibilité" d'avoir une expérience directe de la vie, car en tout lieu, "le vrai est un moment du faux", soit que l'aliénation (être étranger à soi-même) est généralisée et la réalité remplacée par un spectre (image) hideux, une "image" de celle-ci. À chaque époque, cette idéologie qui change de forme (religieuse, capitaliste ou communiste) mais pas d'essence, vient faire écran entre chaque être humain et son appréhension unique et originale de la réalité. Cette idéologie qui veut qu'un "bon" berger se croit toujours obligé de conduire les moutons.
  ~ D'un commentaire youtube
  
- ### Liste de lecture
- * [Zoe Baker : Anarchism Reading List](https://anarchopac.wordpress.com/2013/05/31/recommended-reading/) 
+### Liste de lecture
+* [Zoe Baker : Anarchism Reading List](https://anarchopac.wordpress.com/2013/05/31/recommended-reading/) 
+ 
+### Derive du pouvoir
+Ceux que l'etat tente de reprimer pour avoir eleve la voix ...
+* [Reporter condamne](https://www.youtube.com/watch?v=z7uF4HsiPYg&t=19s)
+* [Youtuber menace et opprime](https://www.youtube.com/watch?v=xYHlzo-1umE)
+* [Manifestant Avocat interpelle arbitrairement](https://www.youtube.com/watch?v=dWzyQtdN7Fc)
+
