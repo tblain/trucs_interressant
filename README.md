@@ -13,6 +13,7 @@
 * [La pédagogie libertaire](https://www.socialisme-libertaire.fr/2016/05/pedagogie-libertaire.html)
 * [La méritocratie, fabrique d'une société élitiste et hierarchisé ](https://www.socialisme-libertaire.fr/2015/03/la-meritocratie-fabrique-d-une-societe-elitiste-et-hierarchise.html)
 * [Les politiciens ne sont que des pions ](https://www.socialisme-libertaire.fr/2020/12/les-politiciens-ne-sont-que-des-pions.html)
+* [A Mathematician’s Lamentby Paul Lockhart](LockhartsLament.pdf) : critique de l'ecole et de comment le systeme scolaire est fait pour nous degouter d'apprendre.
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
