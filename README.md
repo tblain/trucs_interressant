@@ -42,6 +42,8 @@
 * [François BÉGAUDEAU – La bourgeoisie, le capital & la liberté](https://www.youtube.com/watch?v=4gX5KpOboDo)
 * [The Best Conversation on Leftist Strategy I've Ever Had ft. Anarchopac](https://www.youtube.com/watch?v=fH12TOZ-_Sg)
 * [La commune de Paris - Henri Guillemin](https://www.youtube.com/watch?v=PwXwDp3Ze7Q)
+* [Democracy at Work: Curing Capitalism | Richard Wolff | Talks at Google](https://www.youtube.com/watch?v=ynbgMKclWWc)
+
 
 
 ### Images
