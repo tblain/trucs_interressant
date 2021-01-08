@@ -45,6 +45,7 @@
 * [La commune de Paris - Henri Guillemin](https://www.youtube.com/watch?v=PwXwDp3Ze7Q)
 * [Democracy at Work: Curing Capitalism | Richard Wolff | Talks at Google](https://www.youtube.com/watch?v=ynbgMKclWWc)
 * [L' AUTRE VÉRITÉ SUR NOS ÉLITES ( Ft PIERRE BOURDIEU ) | Ep.1](https://www.youtube.com/watch?v=w4EtFZ1ci20)
+* [L' AUTRE VÉRITÉ SUR NOS ÉLITES (Ft MICHEL FOUCAULT) | Ep.2](https://www.youtube.com/watch?v=YYYkd-LyNow)
 
 
 ### Images
