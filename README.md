@@ -44,7 +44,7 @@
 * [The Best Conversation on Leftist Strategy I've Ever Had ft. Anarchopac](https://www.youtube.com/watch?v=fH12TOZ-_Sg)
 * [La commune de Paris - Henri Guillemin](https://www.youtube.com/watch?v=PwXwDp3Ze7Q)
 * [Democracy at Work: Curing Capitalism | Richard Wolff | Talks at Google](https://www.youtube.com/watch?v=ynbgMKclWWc)
-
+* [L' AUTRE VÉRITÉ SUR NOS ÉLITES ( Ft PIERRE BOURDIEU ) | Ep.1](https://www.youtube.com/watch?v=w4EtFZ1ci20)
 
 
 ### Images
