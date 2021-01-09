@@ -47,7 +47,7 @@
 * [Democracy at Work: Curing Capitalism | Richard Wolff | Talks at Google](https://www.youtube.com/watch?v=ynbgMKclWWc)
 * [L' AUTRE VÉRITÉ SUR NOS ÉLITES ( Ft PIERRE BOURDIEU ) | Ep.1](https://www.youtube.com/watch?v=w4EtFZ1ci20)
 * [L' AUTRE VÉRITÉ SUR NOS ÉLITES (Ft MICHEL FOUCAULT) | Ep.2](https://www.youtube.com/watch?v=YYYkd-LyNow)
-* [L'illusion de l'énergie verte | La face cachée des énergies vertes | ARTE](https://www.youtube.com/watch?v=rpUmfZb4XBI)
+* [Makhno et la révolution anarchiste ](https://www.youtube.com/watch?v=fPLHhnEIXvI)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
