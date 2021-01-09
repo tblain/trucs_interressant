@@ -14,6 +14,7 @@
 * [La méritocratie, fabrique d'une société élitiste et hierarchisé ](https://www.socialisme-libertaire.fr/2015/03/la-meritocratie-fabrique-d-une-societe-elitiste-et-hierarchise.html)
 * [Les politiciens ne sont que des pions ](https://www.socialisme-libertaire.fr/2020/12/les-politiciens-ne-sont-que-des-pions.html)
 * [A Mathematician’s Lamentby Paul Lockhart](LockhartsLament.pdf) : critique de l'ecole et de comment le systeme scolaire est fait pour nous degouter d'apprendre.
+* [ 10 Rules for a Non Violent Society ](https://theanarchistlibrary.org/library/philip-richlin-10-rules-for-a-non-violent-society)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
