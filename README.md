@@ -49,6 +49,7 @@
 * [L' AUTRE VÉRITÉ SUR NOS ÉLITES (Ft MICHEL FOUCAULT) | Ep.2](https://www.youtube.com/watch?v=YYYkd-LyNow)
 * [Makhno et la révolution anarchiste ](https://www.youtube.com/watch?v=fPLHhnEIXvI)
 * [Does Capitalism Actually Reduce Poverty? (with Richard Wolff)](https://www.youtube.com/watch?v=Co4FES0ehyI)
+* [Pierre Bourdieu. Sur la télévision](https://www.youtube.com/watch?v=vcc6AEpjdcY)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
