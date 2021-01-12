@@ -16,6 +16,7 @@
 * [A Mathematician’s Lamentby Paul Lockhart](LockhartsLament.pdf) : critique de l'ecole et de comment le systeme scolaire est fait pour nous degouter d'apprendre.
 * [ 10 Rules for a Non Violent Society ](https://theanarchistlibrary.org/library/philip-richlin-10-rules-for-a-non-violent-society)
 * [The Really Really Free Market : Instituting the Gift Economy](https://theanarchistlibrary.org/library/crimethinc-the-really-really-free-market)
+* [An Anarchist Defense of Pornography](https://anarchymag.org/2015/08/an-anarchist-defense-of-pornography/)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
