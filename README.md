@@ -18,6 +18,7 @@
 * [The Really Really Free Market : Instituting the Gift Economy](https://theanarchistlibrary.org/library/crimethinc-the-really-really-free-market)
 * [An Anarchist Defense of Pornography](https://anarchymag.org/2015/08/an-anarchist-defense-of-pornography/)
 * [Elisée Reclus - The Death Penalty](https://theanarchistlibrary.org/library/elisee-reclus-the-death-penalty)
+* [Harsha Walia - 10 Points on the Black Bloc](https://theanarchistlibrary.org/h/hw/harsha-walia-10-points-on-the-black-bloc.html)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
