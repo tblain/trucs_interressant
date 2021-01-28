@@ -20,7 +20,7 @@
 * [Elisée Reclus - The Death Penalty](https://theanarchistlibrary.org/library/elisee-reclus-the-death-penalty)
 * [Harsha Walia - 10 Points on the Black Bloc](https://theanarchistlibrary.org/h/hw/harsha-walia-10-points-on-the-black-bloc.html)
 * [Jeff Bezos Is the World’s Most Dangerous Politician](https://medium.com/surviving-tomorrow/jeff-bezos-is-the-worlds-most-dangerous-politician-61991bc4f516)
-*[Papier Oxfam : EXTREME WEALTHIS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
+* [Papier Oxfam : EXTREME WEALTHIS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
@@ -41,8 +41,7 @@
 * [Histoire de ta bêtise (François Bégaudeau)](https://www.youtube.com/watch?v=_eb3BFkj3Dg)
 * [The Shock Doctrine by Naomi Klein - Review](https://www.youtube.com/watch?v=_PMkBy007VU&feature=emb_logo)
 * [Playlist des vidéos de Franck Lepage](https://www.youtube.com/playlist?list=PLFePO0DghdicNrU0KytikJAV310b9i7Gz)
-* [Playlist des vidéos de Franck Lepage](https://www.youtube.com/playlist?list=PLFePO0DghdicNrU0KytikJAV310b9i7Gz)
-* [Intro to Anarchy: Power & Violence | Philosophy Tube](https://www.youtube.com/watch?v=bCAUmh99hMI)
+* [Intro to Anarchy: Power & Violence Philosophy Tube](https://www.youtube.com/watch?v=bCAUmh99hMI)
 * [Les guignols moquent les pharmaceutiques](VIDEO-2020-11-20-08-31-13.mp4)
 * [Capitalists Are Bad At Business](https://www.youtube.com/watch?v=yP9Oj65OweI)
 * [Society of the Spectacle: WTF? Guy Debord, Situationism and the Spectacle Explained | Tom Nicholas](https://www.youtube.com/watch?v=RGJr08N-auM)
