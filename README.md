@@ -19,6 +19,8 @@
 * [An Anarchist Defense of Pornography](https://anarchymag.org/2015/08/an-anarchist-defense-of-pornography/)
 * [Elisée Reclus - The Death Penalty](https://theanarchistlibrary.org/library/elisee-reclus-the-death-penalty)
 * [Harsha Walia - 10 Points on the Black Bloc](https://theanarchistlibrary.org/h/hw/harsha-walia-10-points-on-the-black-bloc.html)
+* [Jeff Bezos Is the World’s Most Dangerous Politician](https://medium.com/surviving-tomorrow/jeff-bezos-is-the-worlds-most-dangerous-politician-61991bc4f516)
+*[Papier Oxfam : EXTREME WEALTHIS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
 
 ### Bouquins
 * https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
