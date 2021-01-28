@@ -40,7 +40,7 @@
 * [Bullshit jobs (David Graeber)](https://www.youtube.com/watch?v=8cvPDiWkD6I&feature=youtu.be)
 * [Histoire de ta bêtise (François Bégaudeau)](https://www.youtube.com/watch?v=_eb3BFkj3Dg)
 * [The Shock Doctrine by Naomi Klein - Review](https://www.youtube.com/watch?v=_PMkBy007VU&feature=emb_logo)
-* [(French) Playlist des vidéos de Franck Lepage](https://www.youtube.com/playlist?list=PLFePO0DghdicNrU0KytikJAV310b9i7Gz)
+* [Playlist des vidéos de Franck Lepage](https://www.youtube.com/playlist?list=PLFePO0DghdicNrU0KytikJAV310b9i7Gz)
 * [Intro to Anarchy: Power & Violence | Philosophy Tube](https://www.youtube.com/watch?v=bCAUmh99hMI)
 * [Les guignols moquent les pharmaceutiques](VIDEO-2020-11-20-08-31-13.mp4)
 * [Capitalists Are Bad At Business](https://www.youtube.com/watch?v=yP9Oj65OweI)
