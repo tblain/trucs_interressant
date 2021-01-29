@@ -1,4 +1,7 @@
 # Trucs Intéressants
+
+Page Web [ici](https://tblain.github.io/trucs_interressant/).
+
 ## Liste de liens et autres choses intéressantes:
 
 ### Textes cours
