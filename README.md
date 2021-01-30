@@ -62,6 +62,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Pierre Bourdieu. Sur la télévision](https://www.youtube.com/watch?v=vcc6AEpjdcY)
 * [Le capitalisme nous rend-il plus libres ?](https://www.youtube.com/watch?v=x3baW6zCOxY)
 * [Debt: The First 5,000 Years | David Graeber](https://www.youtube.com/watch?v=CZIINXhGDcs)
+* [Privatisation de l'eau : résistances chiliennes](https://www.youtube.com/watch?v=9v_6tfnVgBU)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
