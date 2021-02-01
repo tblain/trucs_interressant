@@ -27,7 +27,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Pierre-Joseph Proudhon : Extraits de laThéorie de la Propriété](https://www.panarchy.org/proudhon/propriete.html)
 
 ### Bouquins
-* https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future
+* [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
 * Ishmael de Daniel Quinns (pdf dispo dans le git)
 * [Desert de anonymous](https://theanarchistlibrary.org/library/anonymous-desert)
 * (Défensue du Marxisme de Léon TROTSKY)
