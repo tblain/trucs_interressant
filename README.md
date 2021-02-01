@@ -23,8 +23,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Elisée Reclus - The Death Penalty](https://theanarchistlibrary.org/library/elisee-reclus-the-death-penalty)
 * [Harsha Walia - 10 Points on the Black Bloc](https://theanarchistlibrary.org/h/hw/harsha-walia-10-points-on-the-black-bloc.html)
 * [Jeff Bezos Is the World’s Most Dangerous Politician](https://medium.com/surviving-tomorrow/jeff-bezos-is-the-worlds-most-dangerous-politician-61991bc4f516)
-* [Papier Oxfam : EXTREME WEALTHIS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
-* [Pierre-Joseph Proudhon : Extraits de laThéorie de la Propriété](https://www.panarchy.org/proudhon/propriete.html)
+* [Papier Oxfam : EXTREME WEALTH IS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
+* [Pierre-Joseph Proudhon : Extraits de la Théorie de la Propriété](https://www.panarchy.org/proudhon/propriete.html)
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
