@@ -32,6 +32,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Desert de anonymous](https://theanarchistlibrary.org/library/anonymous-desert)
 * (Défensue du Marxisme de Léon TROTSKY)
 * [Faire votre forêt comestible](http://www.agriculture19.lesfichesabebert.fr/) (Plus d'infos : https://www.youtube.com/watch?v=rWiX2fumYQk)
+* [L’entraide, l’autre loi de la jungle](https://pabloservigne.com/entraide-2/)
 
 ### Vidéos
 * [John Zerzan: On Modernity and the Technosphere](https://www.youtube.com/watch?v=3I9QJVNas5k)
