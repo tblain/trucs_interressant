@@ -67,6 +67,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Deleuze: Appareils d'Etat et machines de guerre](https://www.youtube.com/watch?v=az-JR9_GOoA)
 * [Comment être ANARCHISTE aujourd'hui ? (Floraisons) - HORIZON](https://www.youtube.com/watch?v=1NS-eogteA0)
 * [Effondrement : On s'est Planté ? Avec Pablo Servigne](https://www.youtube.com/watch?v=xs_a5PQZocY&feature=emb_logo)
+* [Technotombeau 1 — Les anarchistes naturiens](https://www.youtube.com/watch?v=WpduDj8-HsQ&t=313s)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
