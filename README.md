@@ -69,6 +69,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Effondrement : On s'est Planté ? Avec Pablo Servigne](https://www.youtube.com/watch?v=xs_a5PQZocY&feature=emb_logo)
 * [Technotombeau 1 — Les anarchistes naturiens](https://www.youtube.com/watch?v=WpduDj8-HsQ&t=313s)
 * [THÉORIE POLITIQUE - Henry David Thoreau](https://www.youtube.com/watch?v=JJL9S0J8-4k)
+* [Neoliberal Anxiety: Depression, Loneliness, and Suicide under Late Capitalism](https://www.youtube.com/watch?v=hcT7JQRtnDE)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
