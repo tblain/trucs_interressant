@@ -71,6 +71,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [THÉORIE POLITIQUE - Henry David Thoreau](https://www.youtube.com/watch?v=JJL9S0J8-4k)
 * [Neoliberal Anxiety: Depression, Loneliness, and Suicide under Late Capitalism](https://www.youtube.com/watch?v=hcT7JQRtnDE)
 * [Commodity Fetishism and The Spectacle](https://www.youtube.com/watch?v=bOUXB6wXr_s)
+* [Jacques Ellul The Technological Society A Readers Guide Ch 1](https://www.youtube.com/watch?v=VvWWEf6bi5A)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
