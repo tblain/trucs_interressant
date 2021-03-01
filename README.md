@@ -72,7 +72,9 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Neoliberal Anxiety: Depression, Loneliness, and Suicide under Late Capitalism](https://www.youtube.com/watch?v=hcT7JQRtnDE)
 * [Commodity Fetishism and The Spectacle](https://www.youtube.com/watch?v=bOUXB6wXr_s)
 * [Jacques Ellul The Technological Society A Readers Guide Ch 1](https://www.youtube.com/watch?v=VvWWEf6bi5A)
-
+* [All Things Co-op S3 Special Event: A Conversation with Prof. Wolff](https://www.youtube.com/watch?v=XTd9KRtO5yI)
+* [Richard D. Wolff Lecture on Worker Coops: Theory and Practice of 21st Century Socialism](https://www.youtube.com/watch?v=a1WUKahMm1s)
+*
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
 
