@@ -75,6 +75,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [All Things Co-op S3 Special Event: A Conversation with Prof. Wolff](https://www.youtube.com/watch?v=XTd9KRtO5yI)
 * [Richard D. Wolff Lecture on Worker Coops: Theory and Practice of 21st Century Socialism](https://www.youtube.com/watch?v=a1WUKahMm1s)
 * [David GRAEBER: We are already communists](https://www.youtube.com/watch?v=IcK7rkajHKE)
+* [Ur-Fascism by Umberto Eco](https://www.youtube.com/watch?v=yg0uTHY9OyQ)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
