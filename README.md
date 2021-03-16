@@ -77,6 +77,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [David GRAEBER: We are already communists](https://www.youtube.com/watch?v=IcK7rkajHKE)
 * [Ur-Fascism by Umberto Eco](https://www.youtube.com/watch?v=yg0uTHY9OyQ)
 * [The Relevance of Max Stirner for Anarcho Communists by Matty Thomas](https://www.youtube.com/watch?v=J2c_nkZTsmE)
+* ["Are You An Anarchist?" by David Graeber](https://www.youtube.com/watch?v=-G19LwrJwkw)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
