@@ -79,8 +79,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [The Relevance of Max Stirner for Anarcho Communists by Matty Thomas](https://www.youtube.com/watch?v=J2c_nkZTsmE)
 * ["Are You An Anarchist?" by David Graeber](https://www.youtube.com/watch?v=-G19LwrJwkw)
 * [FACE AU DÉSASTRE QUI VIENT : LE COMMUNISME DÉSIRABLE](https://www.youtube.com/watch?v=sBLwC6BQX-s&t=2s)
-* [LE TRAVAIL SOUVERAIN : UN DÉSIR DE COMMUNISME | BERNARD FRIOT, JUDITH BERNAR](https://www.youtube.com/watch?v=NsiBjSkjXYw)
-* [Les damnés de la Commune | ARTE](https://www.youtube.com/watch?v=rtK76S0_tHE)
+* [LE TRAVAIL SOUVERAIN : UN DÉSIR DE COMMUNISME  BERNARD FRIOT, JUDITH BERNAR](https://www.youtube.com/watch?v=NsiBjSkjXYw)
+* [Les damnés de la Commune  ARTE](https://www.youtube.com/watch?v=rtK76S0_tHE)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
