@@ -81,6 +81,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [FACE AU DÉSASTRE QUI VIENT : LE COMMUNISME DÉSIRABLE](https://www.youtube.com/watch?v=sBLwC6BQX-s&t=2s)
 * [LE TRAVAIL SOUVERAIN : UN DÉSIR DE COMMUNISME  BERNARD FRIOT, JUDITH BERNAR](https://www.youtube.com/watch?v=NsiBjSkjXYw)
 * [Les damnés de la Commune  ARTE](https://www.youtube.com/watch?v=rtK76S0_tHE)
+* [Bernard Friot : arguments décisifs contre le revenu de base, outil du Capital.](https://www.youtube.com/watch?v=lHujBHqNSBg)
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
 
