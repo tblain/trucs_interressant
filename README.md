@@ -83,6 +83,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Les damnés de la Commune  ARTE](https://www.youtube.com/watch?v=rtK76S0_tHE)
 * [Bernard Friot : arguments décisifs contre le revenu de base, outil du Capital.](https://www.youtube.com/watch?v=lHujBHqNSBg)
 * [FRANÇOIS BÉGAUDEAU : Peut-on s'émanciper de ses déterminismes ? - ADPH Lyon III](https://www.youtube.com/watch?v=owPFdSEdSKA)
+* [LA REPRISE DU TRAVAIL AUX USINES WONDER - version française](https://www.youtube.com/watch?v=ht1RkTMY0h4)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
