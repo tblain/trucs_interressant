@@ -33,6 +33,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * (Défensue du Marxisme de Léon TROTSKY)
 * [Faire votre forêt comestible](http://www.agriculture19.lesfichesabebert.fr/) (Plus d'infos : https://www.youtube.com/watch?v=rWiX2fumYQk)
 * [L’entraide, l’autre loi de la jungle](https://pabloservigne.com/entraide-2/)
+* [Peter Gelderloos - Anarchy Works](https://theanarchistlibrary.org/library/peter-gelderloos-anarchy-works)
 
 ### Vidéos
 * [John Zerzan: On Modernity and the Technosphere](https://www.youtube.com/watch?v=3I9QJVNas5k)
@@ -84,6 +85,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Bernard Friot : arguments décisifs contre le revenu de base, outil du Capital.](https://www.youtube.com/watch?v=lHujBHqNSBg)
 * [FRANÇOIS BÉGAUDEAU : Peut-on s'émanciper de ses déterminismes ? - ADPH Lyon III](https://www.youtube.com/watch?v=owPFdSEdSKA)
 * [LA REPRISE DU TRAVAIL AUX USINES WONDER - version française](https://www.youtube.com/watch?v=ht1RkTMY0h4)
+* [CES FLICS QUI BOSSENT DIRECTEMENT POUR LE CAC 40](https://www.youtube.com/watch?v=45VlEVe4jjM)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
