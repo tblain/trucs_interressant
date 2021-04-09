@@ -25,12 +25,12 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Jeff Bezos Is the World’s Most Dangerous Politician](https://medium.com/surviving-tomorrow/jeff-bezos-is-the-worlds-most-dangerous-politician-61991bc4f516)
 * [Papier Oxfam : EXTREME WEALTH IS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
 * [Pierre-Joseph Proudhon : Extraits de la Théorie de la Propriété](https://www.panarchy.org/proudhon/propriete.html)
-
+* [Rapport de police sur l'anarchisme](./ADA_fulltext.pdf)
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
 * Ishmael de Daniel Quinns (pdf dispo dans le git)
 * [Desert de anonymous](https://theanarchistlibrary.org/library/anonymous-desert)
-* (Défensue du Marxisme de Léon TROTSKY)
+* (Défense du Marxisme de Léon TROTSKY)
 * [Faire votre forêt comestible](http://www.agriculture19.lesfichesabebert.fr/) (Plus d'infos : https://www.youtube.com/watch?v=rWiX2fumYQk)
 * [L’entraide, l’autre loi de la jungle](https://pabloservigne.com/entraide-2/)
 * [Peter Gelderloos - Anarchy Works](https://theanarchistlibrary.org/library/peter-gelderloos-anarchy-works)
