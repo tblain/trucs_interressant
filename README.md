@@ -26,6 +26,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Papier Oxfam : EXTREME WEALTH IS NOT MERITED](https://www-cdn.oxfam.org/s3fs-public/file_attachments/dp-extreme-wealth-is-not-merited-241115-en.pdf)
 * [Pierre-Joseph Proudhon : Extraits de la Théorie de la Propriété](https://www.panarchy.org/proudhon/propriete.html)
 * [Rapport de police sur l'anarchisme](./ADA_fulltext.pdf)
+* [The Most Dangerous Aspect of Modern Technology](https://antitechrevolution.wordpress.com/2020/11/12/the-most-dangerous-aspect-of-modern-technology/)
+
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
 * Ishmael de Daniel Quinns (pdf dispo dans le git)
