@@ -27,7 +27,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Pierre-Joseph Proudhon : Extraits de la Théorie de la Propriété](https://www.panarchy.org/proudhon/propriete.html)
 * [Rapport de police sur l'anarchisme](./ADA_fulltext.pdf)
 * [The Most Dangerous Aspect of Modern Technology](https://antitechrevolution.wordpress.com/2020/11/12/the-most-dangerous-aspect-of-modern-technology/)
-
+* [Addressing the argument: ‘If there is a revolution against the technological system, people will industrialize again in the future so there’s no point’](https://antitechrevolution.wordpress.com/2021/03/30/addressing-the-argument-if-there-is-a-revolution-against-the-technological-system-people-will-industrialize-again-in-the-future-so-theres-no-point/)
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
 * Ishmael de Daniel Quinns (pdf dispo dans le git)
