@@ -90,6 +90,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [FRANÇOIS BÉGAUDEAU : Peut-on s'émanciper de ses déterminismes ? - ADPH Lyon III](https://www.youtube.com/watch?v=owPFdSEdSKA)
 * [LA REPRISE DU TRAVAIL AUX USINES WONDER - version française](https://www.youtube.com/watch?v=ht1RkTMY0h4)
 * [CES FLICS QUI BOSSENT DIRECTEMENT POUR LE CAC 40](https://www.youtube.com/watch?v=45VlEVe4jjM)
+* [BOLLORÉ : UN EMPIRE MÉDIATIQUE ULTRA RÉAC](https://www.youtube.com/watch?v=5CQzwnPpAKY)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
