@@ -29,6 +29,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [The Most Dangerous Aspect of Modern Technology](https://antitechrevolution.wordpress.com/2020/11/12/the-most-dangerous-aspect-of-modern-technology/)
 * [Addressing the argument: ‘If there is a revolution against the technological system, people will industrialize again in the future so there’s no point’](https://antitechrevolution.wordpress.com/2021/03/30/addressing-the-argument-if-there-is-a-revolution-against-the-technological-system-people-will-industrialize-again-in-the-future-so-theres-no-point/)
 * [Your Lifestyle Has Already Been Designed](https://www.raptitude.com/2010/07/your-lifestyle-has-already-been-designed/)
+* [Infos sur le cote authoritaire (ou non) des revolutions anarchistes](https://www.reddit.com/r/DebateAnarchism/comments/ms3wi5/the_issue_of_authoritarianism_in_anarchist/)
+
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
