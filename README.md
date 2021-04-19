@@ -95,6 +95,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [CES FLICS QUI BOSSENT DIRECTEMENT POUR LE CAC 40](https://www.youtube.com/watch?v=45VlEVe4jjM)
 * [BOLLORÉ : UN EMPIRE MÉDIATIQUE ULTRA RÉAC](https://www.youtube.com/watch?v=5CQzwnPpAKY)
 * [Voice of a Mountain Meadow](https://www.youtube.com/watch?v=mvvpLpW2Ibg)
+* [Debord - La Société du Spectacle - De Dicto #26](https://www.youtube.com/watch?v=r6mERrGVcJE)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
