@@ -111,9 +111,12 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 ### Liste de lecture
 * [Zoe Baker : Anarchism Reading List](https://anarchopac.wordpress.com/2013/05/31/recommended-reading/) 
  
-### Derive du pouvoir
-Ceux que l'etat tente de reprimer pour avoir eleve la voix ...
+### Dérive du pouvoir
+Ceux que l'état tente de réprimer pour avoir élevé la voix ...
 * [Reporter condamne](https://www.youtube.com/watch?v=z7uF4HsiPYg&t=19s)
 * [Youtuber menace et opprime](https://www.youtube.com/watch?v=xYHlzo-1umE)
 * [Manifestant Avocat interpelle arbitrairement](https://www.youtube.com/watch?v=dWzyQtdN7Fc)
+
+### Associations / Coopérative / truc de ce genre
+* [Food Not War](http://foodnotbombs.net/new_site/index.php)
 
