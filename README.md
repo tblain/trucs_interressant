@@ -97,6 +97,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Voice of a Mountain Meadow](https://www.youtube.com/watch?v=mvvpLpW2Ibg)
 * [Debord - La Société du Spectacle - De Dicto #26](https://www.youtube.com/watch?v=r6mERrGVcJE)
 * [Edouard Louis: «On propose deux choses aux classes populaires: mourir ou mourir»](https://www.youtube.com/watch?v=he6CWAHa278)
+* [Elections 2022 : pour que les Français ne soient pas encore cocus...](https://www.youtube.com/watch?v=gTXzurFfBQo)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
