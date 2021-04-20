@@ -118,5 +118,5 @@ Ceux que l'état tente de réprimer pour avoir élevé la voix ...
 * [Manifestant Avocat interpelle arbitrairement](https://www.youtube.com/watch?v=dWzyQtdN7Fc)
 
 ### Associations / Coopérative / truc de ce genre
-* [Food Not War](http://foodnotbombs.net/new_site/index.php)
+* [Food Not Bombs](http://foodnotbombs.net/new_site/index.php)
 
