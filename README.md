@@ -96,6 +96,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [BOLLORÉ : UN EMPIRE MÉDIATIQUE ULTRA RÉAC](https://www.youtube.com/watch?v=5CQzwnPpAKY)
 * [Voice of a Mountain Meadow](https://www.youtube.com/watch?v=mvvpLpW2Ibg)
 * [Debord - La Société du Spectacle - De Dicto #26](https://www.youtube.com/watch?v=r6mERrGVcJE)
+* [Edouard Louis: «On propose deux choses aux classes populaires: mourir ou mourir»](https://www.youtube.com/watch?v=he6CWAHa278)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
