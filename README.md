@@ -103,6 +103,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
 
+### Articles
+* [Valeurs actuelles : une légitimation médiatique de (très) longue date](https://www.acrimed.org/Valeurs-actuelles-une-legitimation-mediatique-de)
 
 ### Images
 * [Abus des usa en Irak](https://ushypocrisy.com/2013/04/28/lest-we-forget-the-horrifying-images-from-abu-ghraib-prison-in-iraq-graphic-imagery/)
