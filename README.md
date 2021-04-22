@@ -98,6 +98,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Debord - La Société du Spectacle - De Dicto #26](https://www.youtube.com/watch?v=r6mERrGVcJE)
 * [Edouard Louis: «On propose deux choses aux classes populaires: mourir ou mourir»](https://www.youtube.com/watch?v=he6CWAHa278)
 * [Elections 2022 : pour que les Français ne soient pas encore cocus...](https://www.youtube.com/watch?v=gTXzurFfBQo)
+* [Usul - Figures du communisme - Lecture du dernier Lordon](https://youtu.be/97eAZ7oj7U0?t=4100) (fonctionnement du travail et de la remuneration vu par berbard friot dans un systeme communiste au temps ou j'ai fait commence la video)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
