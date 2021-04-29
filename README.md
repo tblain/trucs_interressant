@@ -101,6 +101,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Elections 2022 : pour que les Français ne soient pas encore cocus...](https://www.youtube.com/watch?v=gTXzurFfBQo)
 * [Usul - Figures du communisme - Lecture du dernier Lordon](https://youtu.be/97eAZ7oj7U0?t=4100) (fonctionnement du travail et de la remuneration vu par berbard friot dans un systeme communiste au temps ou j'ai fait commence la video)
 * [Commun(s) - Politikon #21](https://www.youtube.com/watch?v=8QpQUsMlpxQ)
+* [Trucs pas ouf de reddit](https://raddle.me/wiki/what_is_wrong_with_reddit)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
