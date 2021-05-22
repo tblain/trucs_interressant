@@ -32,6 +32,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Infos sur le cote authoritaire (ou non) des revolutions anarchistes](https://www.reddit.com/r/DebateAnarchism/comments/ms3wi5/the_issue_of_authoritarianism_in_anarchist/)
 * [Petit resume de "l'insurection qui vient"](https://www.nouvelobs.com/rue89/rue89-politique/20141021.RUE6283/sept-ans-apres-l-insurrection-qui-vient-le-comite-invisible-reapparait.html)
 * [Climate scientists: concept of net zero is a dangerous trap](https://theconversation.com/climate-scientists-concept-of-net-zero-is-a-dangerous-trap-157368)
+* [303 Revolution of Fungal Life, by Anonymous](https://immediatism.com/archives/podcast/303-revolution-of-fungal-life-by-anonymous)
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
