@@ -108,7 +108,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La PLUS-VALUE, au centre de L'EXPLOITATION CAPITALISTE](https://www.youtube.com/watch?v=ggyNpbSyvT0)
 * [LA MARCHANDISE, d'après KARL MARX](https://www.youtube.com/watch?v=Z0YBSWJ_S3A)
 * [C'est quoi, "La société du spectacle" ?](https://www.youtube.com/watch?v=dMFJjdqnfx8&t=235s)
-* [Capitalism and Worker Co-ops (With a Response to Vaush)](https://www.youtube.com/watch?v=z7n52oyRUVI)
+* [Capitalism and Worker Co-ops](https://www.youtube.com/watch?v=z7n52oyRUVI)
 * [La belle Révolution Cubaine 🇨🇺 | Viktor Dedaj #1](https://www.youtube.com/watch?v=epT4HnWoU5k)
 
 #### Covid
