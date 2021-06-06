@@ -110,6 +110,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [C'est quoi, "La société du spectacle" ?](https://www.youtube.com/watch?v=dMFJjdqnfx8&t=235s)
 * [Capitalism and Worker Co-ops](https://www.youtube.com/watch?v=z7n52oyRUVI)
 * [La belle Révolution Cubaine 🇨🇺 | Viktor Dedaj #1](https://www.youtube.com/watch?v=epT4HnWoU5k)
+* [HEGEL - La dialectique](https://www.youtube.com/watch?v=ztLfA9RBq5s)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
