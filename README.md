@@ -112,6 +112,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La belle Révolution Cubaine 🇨🇺 | Viktor Dedaj #1](https://www.youtube.com/watch?v=epT4HnWoU5k)
 * [HEGEL - La dialectique](https://www.youtube.com/watch?v=ztLfA9RBq5s)
 * [Why didn't Africa Colonise Europe?](https://www.youtube.com/watch?v=jx1Jg4QAPmM)
+* [Thomas Coutrot : Marx et le monde contemporain](https://www.youtube.com/watch?v=Ui53CNnslY0)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
