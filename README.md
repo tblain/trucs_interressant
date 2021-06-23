@@ -113,7 +113,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [HEGEL - La dialectique](https://www.youtube.com/watch?v=ztLfA9RBq5s)
 * [Why didn't Africa Colonise Europe?](https://www.youtube.com/watch?v=jx1Jg4QAPmM)
 * [Thomas Coutrot : Marx et le monde contemporain](https://www.youtube.com/watch?v=Ui53CNnslY0)
-* [De la lutte des classes à l'école, avec le sociologue Bernard Lahire](https://www.youtube.com/watch?v=g_fzdAa1eJ8)
+* [France Culture - De la lutte des classes à l'école, avec le sociologue Bernard Lahire](https://www.youtube.com/watch?v=g_fzdAa1eJ8)
+* [France Culture - Travailler c’est trop dur ?](https://www.youtube.com/watch?v=SNt-Nf1rJjo)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
