@@ -115,6 +115,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Thomas Coutrot : Marx et le monde contemporain](https://www.youtube.com/watch?v=Ui53CNnslY0)
 * [France Culture - De la lutte des classes à l'école, avec le sociologue Bernard Lahire](https://www.youtube.com/watch?v=g_fzdAa1eJ8)
 * [France Culture - Travailler c’est trop dur ?](https://www.youtube.com/watch?v=SNt-Nf1rJjo)
+* [L'ABSTENTION, UNE BONNE NOUVELLE ? 🤷‍♂️ ( Teuf, misère, justice, Perou... )](https://www.youtube.com/watch?v=7o4Zq8Ltg04)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
