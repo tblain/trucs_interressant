@@ -117,6 +117,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [France Culture - Travailler c’est trop dur ?](https://www.youtube.com/watch?v=SNt-Nf1rJjo)
 * [L'ABSTENTION, UNE BONNE NOUVELLE ? 🤷‍♂️ ( Teuf, misère, justice, Perou... )](https://www.youtube.com/watch?v=7o4Zq8Ltg04)
 * [Ask Prof Wolff: Copyrights & Capitalism, A Critique](https://www.youtube.com/watch?v=Mj_bSC6PCPs)
+* [Lexique : La baisse tendancielle du taux de profit (Réseau Salariat)](https://www.youtube.com/watch?v=lxVo1DX6Ko4)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
