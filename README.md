@@ -121,6 +121,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Salaire à vie - démocratie et liberté dans son travail](https://www.youtube.com/watch?v=m6M6rHw_6zU)
 * [Didier Bille, ancien DRH, avoue : «Les salariés doivent craindre les ressources humaines »](https://www.youtube.com/watch?v=abHrEH2wwIg)
 * [Imperialism The Highest Stage of Capitalism by Vladimir Lenin](https://www.youtube.com/watch?v=xzHQM7vDiHc)
+* [Critique of the Gotha Programme by Karl Marx - Radical Reviewer (ft. Luna Oi)](https://www.youtube.com/watch?v=lebgIDnaAXk)
+* [Is Vietnam socialist?](https://www.youtube.com/watch?v=mMubOw5H-yo)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
