@@ -123,6 +123,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Imperialism The Highest Stage of Capitalism by Vladimir Lenin](https://www.youtube.com/watch?v=xzHQM7vDiHc)
 * [Critique of the Gotha Programme by Karl Marx - Radical Reviewer (ft. Luna Oi)](https://www.youtube.com/watch?v=lebgIDnaAXk)
 * [Is Vietnam socialist?](https://www.youtube.com/watch?v=mMubOw5H-yo)
+* [François Bégaudeau - L'histoire de ta bêtise](https://www.youtube.com/watch?v=qB1MygRMYJY)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
