@@ -125,6 +125,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Is Vietnam socialist?](https://www.youtube.com/watch?v=mMubOw5H-yo)
 * [François Bégaudeau - L'histoire de ta bêtise](https://www.youtube.com/watch?v=qB1MygRMYJY)
 * [Recherche:Salaire à vie](https://fr.wikiversity.org/wiki/Recherche:Salaire_%C3%A0_vie)
+* [The Lion King (Is Garbage & Here's Why) - Radical Reviewer](https://www.youtube.com/watch?v=HNjq9ui2KiA)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
