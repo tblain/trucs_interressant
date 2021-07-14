@@ -127,6 +127,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Recherche:Salaire à vie](https://fr.wikiversity.org/wiki/Recherche:Salaire_%C3%A0_vie)
 * [The Lion King (Is Garbage & Here's Why) - Radical Reviewer](https://www.youtube.com/watch?v=HNjq9ui2KiA)
 * [Notre ennemi commun, c'est Macron ( Et son monde )](https://www.youtube.com/watch?v=ZKsoLlFcUrg)
+* [Giorgio Agamben sur TIQQUN](https://www.youtube.com/watch?v=eJLZUNgZ7zY)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
