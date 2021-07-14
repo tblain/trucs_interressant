@@ -128,6 +128,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [The Lion King (Is Garbage & Here's Why) - Radical Reviewer](https://www.youtube.com/watch?v=HNjq9ui2KiA)
 * [Notre ennemi commun, c'est Macron ( Et son monde )](https://www.youtube.com/watch?v=ZKsoLlFcUrg)
 * [Giorgio Agamben sur TIQQUN](https://www.youtube.com/watch?v=eJLZUNgZ7zY)
+* [Le capital, c'est quoi ? (en 1 minute) - Frédéric Lordon](https://www.youtube.com/watch?v=7ZkhyFEh34M)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
