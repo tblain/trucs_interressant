@@ -129,6 +129,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Notre ennemi commun, c'est Macron ( Et son monde )](https://www.youtube.com/watch?v=ZKsoLlFcUrg)
 * [Giorgio Agamben sur TIQQUN](https://www.youtube.com/watch?v=eJLZUNgZ7zY)
 * [Le capital, c'est quoi ? (en 1 minute) - Frédéric Lordon](https://www.youtube.com/watch?v=7ZkhyFEh34M)
+* [De quoi la parade vaccinale est-elle le symptôme ?](https://observatoiresituationniste.wordpress.com/2021/07/18/de-quoi-la-parade-vaccinale-est-elle-le-symptome/)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
