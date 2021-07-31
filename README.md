@@ -35,6 +35,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [303 Revolution of Fungal Life, by Anonymous](https://immediatism.com/archives/podcast/303-revolution-of-fungal-life-by-anonymous)
 * [C'est quoi, "La société du spectacle" ?](https://observatoiresituationniste.wordpress.com/2021/05/15/la-societe-du-spectacle-comme-si-vous-y-etiez/)
 * [La vie et l'oeuvre de l'anarchiste Omar Aziz, son impact sur l'auto-organisation dans la révolution syrienne.](https://juralib.noblogs.org/files/2013/08/Omar-Aziz.pdf)
+* [Korean Ancom association](https://www.reddit.com/r/TOTALCOMMUNALISM/comments/oup379/title/?utm_medium=android_app&utm_source=share)
+* [À propos du Bac de philosophie](https://lundi.am/Sommes-nous-responsables-de-l-avenir-4162?fbclid=IwAR3P_djviHwyNdP17nr4B9gSOjm9-R-_xYXFbA078IAWo6AycuNr0Q0jaDE)
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
