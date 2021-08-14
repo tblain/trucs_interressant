@@ -140,6 +140,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Le canard refractaire: LA TRAHISON DE TROP](https://www.youtube.com/watch?v=hzhi98EkqpE)
 * [Le pécheur et le milliardaire (la logique capitaliste) - Dominique Rongvaux](https://www.youtube.com/watch?v=v1n9aEmbcZo)
 * [Le consommateur n'est pas responsable du réchauffement - Le Biais Vert](https://www.youtube.com/watch?v=RwSAPDHv0PY)
+* [Crise de la masculinité, le mythe - Dans quel monde vit-on ?](https://www.youtube.com/watch?v=ktkA558Y6c8)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
