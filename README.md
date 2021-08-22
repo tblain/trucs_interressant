@@ -55,6 +55,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Faire votre forêt comestible](http://www.agriculture19.lesfichesabebert.fr/) (Plus d'infos : https://www.youtube.com/watch?v=rWiX2fumYQk)
 * [L’entraide, l’autre loi de la jungle](https://pabloservigne.com/entraide-2/)
 * [Peter Gelderloos - Anarchy Works](https://theanarchistlibrary.org/library/peter-gelderloos-anarchy-works)
+* [Tiqqun 1](http://data0.eklablog.com/ae-editions/perso/bibliotheque%20-%20pdf/tiqqun%20--1--.pdf)
 
 ### Vidéos
 * [John Zerzan: On Modernity and the Technosphere](https://www.youtube.com/watch?v=3I9QJVNas5k)
