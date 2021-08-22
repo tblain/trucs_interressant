@@ -4,7 +4,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 
 ## Liste de liens et autres choses intéressantes:
 
-### Textes cours
+### Textes cours / Essais
 
 * https://www.theguardian.com/commentisfree/2016/dec/19/life-without-technology-rejecting-technology
   * Meme auteur https://www.theguardian.com/profile/mark-boyle
@@ -37,6 +37,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La vie et l'oeuvre de l'anarchiste Omar Aziz, son impact sur l'auto-organisation dans la révolution syrienne.](https://juralib.noblogs.org/files/2013/08/Omar-Aziz.pdf)
 * [Korean Ancom association](https://www.reddit.com/r/TOTALCOMMUNALISM/comments/oup379/title/?utm_medium=android_app&utm_source=share)
 * [À propos du Bac de philosophie](https://lundi.am/Sommes-nous-responsables-de-l-avenir-4162?fbclid=IwAR3P_djviHwyNdP17nr4B9gSOjm9-R-_xYXFbA078IAWo6AycuNr0Q0jaDE)
+* [On a retrouvé les écrits du gardé à vue pour sabotages à la SNCF](https://www.nouvelobs.com/rue89/rue89-nos-vies-connectees/20081113.RUE6794/on-a-retrouve-les-ecrits-du-garde-a-vue-pour-sabotages-a-la-sncf.html)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
