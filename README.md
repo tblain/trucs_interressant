@@ -43,6 +43,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [303 Revolution of Fungal Life, by Anonymous](https://immediatism.com/archives/podcast/303-revolution-of-fungal-life-by-anonymous)
 * [Take What You Need And Compost The Rest: an introduction to post-civilized theory](https://www.youtube.com/watch?v=WcrCv-SiaEs)
 * [Introduction to Mutual Aid by Andrej Grubacic and David Graeber](https://www.youtube.com/watch?v=EfJRQQQhXEY)
+* ["Fascism in a Pinstriped Suit" by Michael Parenti](https://www.youtube.com/watch?v=Yu6QTSnJbFs)
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
@@ -146,6 +147,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La décroissance - Aurélien Barrau](https://www.youtube.com/watch?v=BCTCZuB7jzE)
 * [Take What You Need And Compost The Rest: an introduction to post-civilized theory](https://www.youtube.com/watch?v=WcrCv-SiaEs)
 * [Introduction to Mutual Aid by Andrej Grubacic and David Graeber](https://www.youtube.com/watch?v=EfJRQQQhXEY)
+* ["Fascism in a Pinstriped Suit" by Michael Parenti](https://www.youtube.com/watch?v=Yu6QTSnJbFs)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
