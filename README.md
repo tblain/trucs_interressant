@@ -151,6 +151,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Introduction to Mutual Aid by Andrej Grubacic and David Graeber](https://www.youtube.com/watch?v=EfJRQQQhXEY)
 * ["Fascism in a Pinstriped Suit" by Michael Parenti](https://www.youtube.com/watch?v=Yu6QTSnJbFs)
 * [Comment le capitalisme a tué nos sols - Claude Bourguignon](https://www.youtube.com/watch?v=y7mosKT_pdE)
+* [Le mythe de la méritocratie en 2 minutes - Chantal Jaquet et David Guilbaud](https://www.youtube.com/watch?v=JodlElyg4pw)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
