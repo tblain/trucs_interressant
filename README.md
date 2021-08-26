@@ -155,6 +155,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Société totalitaire par la médecine - Jaques Attali 1979](https://www.youtube.com/watch?v=sVGYKF3sao0)
 * [Hacker veut dire se rendre ingouvernable - Amis et inculpés de Tarnac](https://www.youtube.com/watch?v=uiViOohSA_c&t=3025s)
 * [Le Mix : «Tarnac et l’État nucléaire» - La Parisienne Libérée ♫](http://www.laparisienneliberee.com/tarnac-et-letat-nucleaire/)
+* [Contrôle des pauvres 02 - Le défi clinique du travail social - Laurent SOCHARD](https://www.youtube.com/watch?v=V9miYFfvGFY) (voir aussi la chaine youtube qui est tres bien)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
