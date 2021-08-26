@@ -154,6 +154,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Le mythe de la méritocratie en 2 minutes - Chantal Jaquet et David Guilbaud](https://www.youtube.com/watch?v=JodlElyg4pw)
 * [Société totalitaire par la médecine - Jaques Attali 1979](https://www.youtube.com/watch?v=sVGYKF3sao0)
 * [Hacker veut dire se rendre ingouvernable - Amis et inculpés de Tarnac](https://www.youtube.com/watch?v=uiViOohSA_c&t=3025s)
+* [Le Mix : «Tarnac et l’État nucléaire» - La Parisienne Libérée ♫](http://www.laparisienneliberee.com/tarnac-et-letat-nucleaire/)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
