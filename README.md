@@ -156,6 +156,8 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Hacker veut dire se rendre ingouvernable - Amis et inculpés de Tarnac](https://www.youtube.com/watch?v=uiViOohSA_c&t=3025s)
 * [Le Mix : «Tarnac et l’État nucléaire» - La Parisienne Libérée ♫](http://www.laparisienneliberee.com/tarnac-et-letat-nucleaire/)
 * [Contrôle des pauvres 02 - Le défi clinique du travail social - Laurent SOCHARD](https://www.youtube.com/watch?v=V9miYFfvGFY) (voir aussi la chaine youtube qui est tres bien)
+* [La docilité des élèves m'a mis mal à l'aise - François Bégaudeau](https://www.youtube.com/watch?v=pezI5L-ZxcE)
+* [La Dialectique Peut-Elle Casser Des Briques ?](https://www.youtube.com/watch?v=6y9Xdf6qa0Y)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
