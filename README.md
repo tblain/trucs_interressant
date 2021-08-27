@@ -159,6 +159,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La docilité des élèves m'a mis mal à l'aise - François Bégaudeau](https://www.youtube.com/watch?v=pezI5L-ZxcE)
 * [La Dialectique Peut-Elle Casser Des Briques ?](https://www.youtube.com/watch?v=6y9Xdf6qa0Y)
 * [L'école est une machine à humilier les pauvres - François Bégaudeau](https://www.youtube.com/watch?v=GEZP_OV7-ms&list=PLma2BaPR4U2-NtinYWwzRh2pznWg2P2DE&index=7)
+* [Histoire de la norme et du corps discipliné - resume sur michel foucault](https://www.youtube.com/watch?v=dEPVv5odf14&list=PLma2BaPR4U29kGycrNEdETYoKA1WbsdlC&index=2)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
