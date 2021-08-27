@@ -38,6 +38,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Korean Ancom association](https://www.reddit.com/r/TOTALCOMMUNALISM/comments/oup379/title/?utm_medium=android_app&utm_source=share)
 * [À propos du Bac de philosophie](https://lundi.am/Sommes-nous-responsables-de-l-avenir-4162?fbclid=IwAR3P_djviHwyNdP17nr4B9gSOjm9-R-_xYXFbA078IAWo6AycuNr0Q0jaDE)
 * [On a retrouvé les écrits du gardé à vue pour sabotages à la SNCF](https://www.nouvelobs.com/rue89/rue89-nos-vies-connectees/20081113.RUE6794/on-a-retrouve-les-ecrits-du-garde-a-vue-pour-sabotages-a-la-sncf.html)
+* [Présentation du livre Théorie du Bloom de Tiqqun](https://collectiflieuxcommuns.fr/IMG/pdf_Tiqqun_-_Theorie_du_Bloom.pdf)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
