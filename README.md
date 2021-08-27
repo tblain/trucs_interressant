@@ -158,6 +158,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Contrôle des pauvres 02 - Le défi clinique du travail social - Laurent SOCHARD](https://www.youtube.com/watch?v=V9miYFfvGFY) (voir aussi la chaine youtube qui est tres bien)
 * [La docilité des élèves m'a mis mal à l'aise - François Bégaudeau](https://www.youtube.com/watch?v=pezI5L-ZxcE)
 * [La Dialectique Peut-Elle Casser Des Briques ?](https://www.youtube.com/watch?v=6y9Xdf6qa0Y)
+* [L'école est une machine à humilier les pauvres - François Bégaudeau](https://www.youtube.com/watch?v=GEZP_OV7-ms&list=PLma2BaPR4U2-NtinYWwzRh2pznWg2P2DE&index=7)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
