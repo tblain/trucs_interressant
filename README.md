@@ -1,4 +1,4 @@
-Présentation du livre Théorie du Bloom de Tiqqun# Trucs Intéressants
+https://www.youtube.com/playlist?list=PLma2BaPR4U2_a7ehDl9gJWd4HEeW6MvwhPrésentation du livre Théorie du Bloom de Tiqqun# Trucs Intéressants
 
 Page Web [ici](https://tblain.github.io/trucs_interressant/).
 
@@ -161,6 +161,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La Dialectique Peut-Elle Casser Des Briques ?](https://www.youtube.com/watch?v=6y9Xdf6qa0Y)
 * [L'école est une machine à humilier les pauvres - François Bégaudeau](https://www.youtube.com/watch?v=GEZP_OV7-ms&list=PLma2BaPR4U2-NtinYWwzRh2pznWg2P2DE&index=7)
 * [Histoire de la norme et du corps discipliné - resume sur michel foucault](https://www.youtube.com/watch?v=dEPVv5odf14&list=PLma2BaPR4U29kGycrNEdETYoKA1WbsdlC&index=2)
+* [Playlist sur Michel Foucault](https://www.youtube.com/playlist?list=PLma2BaPR4U2_a7ehDl9gJWd4HEeW6Mvwh)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
