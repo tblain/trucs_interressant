@@ -163,6 +163,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Histoire de la norme et du corps discipliné - resume sur michel foucault](https://www.youtube.com/watch?v=dEPVv5odf14&list=PLma2BaPR4U29kGycrNEdETYoKA1WbsdlC&index=2)
 * [Playlist sur Michel Foucault](https://www.youtube.com/playlist?list=PLma2BaPR4U2_a7ehDl9gJWd4HEeW6Mvwh)
 * [La prison est-elle vraiment efficace contre le crime ?](https://www.youtube.com/watch?v=xoCpO7lJBrE)
+* [Foucault annonce la société disciplinaire dans Surveiller et Punir](https://www.youtube.com/watch?v=CWowYemjGKU)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
