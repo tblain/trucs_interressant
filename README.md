@@ -164,6 +164,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Playlist sur Michel Foucault](https://www.youtube.com/playlist?list=PLma2BaPR4U2_a7ehDl9gJWd4HEeW6Mvwh)
 * [La prison est-elle vraiment efficace contre le crime ?](https://www.youtube.com/watch?v=xoCpO7lJBrE)
 * [Foucault annonce la société disciplinaire dans Surveiller et Punir](https://www.youtube.com/watch?v=CWowYemjGKU)
+* [Contrôle social des pauvres - Alain GUYARD](https://www.youtube.com/watch?v=FQfCnKepUMc) sur foucault et deleuze, les societes disciplinaire et celles de controle
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
