@@ -165,6 +165,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La prison est-elle vraiment efficace contre le crime ?](https://www.youtube.com/watch?v=xoCpO7lJBrE)
 * [Foucault annonce la société disciplinaire dans Surveiller et Punir](https://www.youtube.com/watch?v=CWowYemjGKU)
 * [Contrôle social des pauvres - Alain GUYARD](https://www.youtube.com/watch?v=FQfCnKepUMc) sur foucault et deleuze, les societes disciplinaire et celles de controle
+* [Colonisation des esprits par les marchés financiers - Roland Gori](https://www.youtube.com/watch?v=oTlAiSjuxSM&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=2)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
