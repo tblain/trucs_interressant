@@ -121,7 +121,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [LA MARCHANDISE, d'après KARL MARX](https://www.youtube.com/watch?v=Z0YBSWJ_S3A)
 * [C'est quoi, "La société du spectacle" ?](https://www.youtube.com/watch?v=dMFJjdqnfx8&t=235s)
 * [Capitalism and Worker Co-ops](https://www.youtube.com/watch?v=z7n52oyRUVI)
-* [La belle Révolution Cubaine 🇨🇺 | Viktor Dedaj #1](https://www.youtube.com/watch?v=epT4HnWoU5k)
+* [La belle Révolution Cubaine - Viktor Dedaj #1](https://www.youtube.com/watch?v=epT4HnWoU5k)
 * [HEGEL - La dialectique](https://www.youtube.com/watch?v=ztLfA9RBq5s)
 * [Why didn't Africa Colonise Europe?](https://www.youtube.com/watch?v=jx1Jg4QAPmM)
 * [Thomas Coutrot : Marx et le monde contemporain](https://www.youtube.com/watch?v=Ui53CNnslY0)
