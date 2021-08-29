@@ -1,4 +1,4 @@
-https://www.youtube.com/playlist?list=PLma2BaPR4U2_a7ehDl9gJWd4HEeW6MvwhPrésentation du livre Théorie du Bloom de Tiqqun# Trucs Intéressants
+# Trucs Intéressants
 
 Page Web [ici](https://tblain.github.io/trucs_interressant/).
 
