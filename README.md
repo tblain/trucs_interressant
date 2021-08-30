@@ -166,6 +166,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Foucault annonce la société disciplinaire dans Surveiller et Punir](https://www.youtube.com/watch?v=CWowYemjGKU)
 * [Contrôle social des pauvres - Alain GUYARD](https://www.youtube.com/watch?v=FQfCnKepUMc) sur foucault et deleuze, les societes disciplinaire et celles de controle
 * [Colonisation des esprits par les marchés financiers - Roland Gori](https://www.youtube.com/watch?v=oTlAiSjuxSM&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=2)
+* [StopCovid - Il ne faut pas rejeter les techniques mais les critiquer et les transformer.](https://www.youtube.com/watch?v=1eL1pPg38-M&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=21)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
