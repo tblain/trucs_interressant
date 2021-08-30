@@ -169,6 +169,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [StopCovid - Il ne faut pas rejeter les techniques mais les critiquer et les transformer.](https://www.youtube.com/watch?v=1eL1pPg38-M&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=21)
 * [Le projet c'est ce qui tue le désir - Franck Lepage](https://www.youtube.com/watch?v=MS5lJCNrIdU&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=35)
 * [Management _ Discipliner les travailleurs - Grégoire Chamayou](https://www.youtube.com/watch?v=P7f03B8H4Ek&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=42)
+* [Le pouvoir a peur que nous n’ayons plus peur - Grégoire Chamayou](https://www.youtube.com/watch?v=Qj0v89x-HYY&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=43)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
