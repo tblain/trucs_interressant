@@ -170,6 +170,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Le projet c'est ce qui tue le désir - Franck Lepage](https://www.youtube.com/watch?v=MS5lJCNrIdU&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=35)
 * [Management _ Discipliner les travailleurs - Grégoire Chamayou](https://www.youtube.com/watch?v=P7f03B8H4Ek&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=42)
 * [Le pouvoir a peur que nous n’ayons plus peur - Grégoire Chamayou](https://www.youtube.com/watch?v=Qj0v89x-HYY&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=43)
+* [Marcuse et la société technologique - Comment on organise ta vie - Fiche de lecture #1](https://www.youtube.com/watch?v=glR8b2tjMMs)
 * [Chamayou et le néolibéralisme - Les techniques de contrôle - Fiche de lecture #2](https://www.youtube.com/watch?v=tVZdH0wfBBM)
 
 #### Covid
