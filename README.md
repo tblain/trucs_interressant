@@ -172,6 +172,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Le pouvoir a peur que nous n’ayons plus peur - Grégoire Chamayou](https://www.youtube.com/watch?v=Qj0v89x-HYY&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=43)
 * [Marcuse et la société technologique - Comment on organise ta vie - Fiche de lecture #1](https://www.youtube.com/watch?v=glR8b2tjMMs)
 * [Chamayou et le néolibéralisme - Les techniques de contrôle - Fiche de lecture #2](https://www.youtube.com/watch?v=tVZdH0wfBBM)
+* [[ZAP] PASS SANITAIRE : Mensonges & Folie (UnderZap #61)](https://www.youtube.com/watch?v=e9M4RcWHVrk)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
