@@ -32,13 +32,13 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Infos sur le cote authoritaire (ou non) des revolutions anarchistes](https://www.reddit.com/r/DebateAnarchism/comments/ms3wi5/the_issue_of_authoritarianism_in_anarchist/)
 * [Petit resume de "l'insurection qui vient"](https://www.nouvelobs.com/rue89/rue89-politique/20141021.RUE6283/sept-ans-apres-l-insurrection-qui-vient-le-comite-invisible-reapparait.html)
 * [Climate scientists: concept of net zero is a dangerous trap](https://theconversation.com/climate-scientists-concept-of-net-zero-is-a-dangerous-trap-157368)
-
 * [C'est quoi, "La société du spectacle" ?](https://observatoiresituationniste.wordpress.com/2021/05/15/la-societe-du-spectacle-comme-si-vous-y-etiez/)
 * [La vie et l'oeuvre de l'anarchiste Omar Aziz, son impact sur l'auto-organisation dans la révolution syrienne.](https://juralib.noblogs.org/files/2013/08/Omar-Aziz.pdf)
 * [Korean Ancom association](https://www.reddit.com/r/TOTALCOMMUNALISM/comments/oup379/title/?utm_medium=android_app&utm_source=share)
 * [À propos du Bac de philosophie](https://lundi.am/Sommes-nous-responsables-de-l-avenir-4162?fbclid=IwAR3P_djviHwyNdP17nr4B9gSOjm9-R-_xYXFbA078IAWo6AycuNr0Q0jaDE)
 * [On a retrouvé les écrits du gardé à vue pour sabotages à la SNCF](https://www.nouvelobs.com/rue89/rue89-nos-vies-connectees/20081113.RUE6794/on-a-retrouve-les-ecrits-du-garde-a-vue-pour-sabotages-a-la-sncf.html)
 * [Présentation du livre Théorie du Bloom de Tiqqun + parallele avec sa situation a l'univ](https://collectiflieuxcommuns.fr/IMG/pdf_Tiqqun_-_Theorie_du_Bloom.pdf)
+* [A propos du livre de Alain Bihr: Entre bourgeoisie et prolétariat. L'encadrement capitaliste](https://www.persee.fr/doc/homso_0018-4306_1990_num_97_3_2497)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
