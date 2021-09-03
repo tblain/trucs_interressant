@@ -1,4 +1,4 @@
-# Trucs Intéressants
+https://www.youtube.com/watch?v=LQjJahFp_uw# Trucs Intéressants
 
 Page Web [ici](https://tblain.github.io/trucs_interressant/).
 
@@ -174,6 +174,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Chamayou et le néolibéralisme - Les techniques de contrôle - Fiche de lecture #2](https://www.youtube.com/watch?v=tVZdH0wfBBM)
 * [[ZAP] PASS SANITAIRE : Mensonges & Folie (UnderZap #61)](https://www.youtube.com/watch?v=e9M4RcWHVrk)
 * [MCKINSEY : LE CABINET QUI DECIDE DE NOS VIES ? - Le Stagirite](https://www.youtube.com/watch?v=jdybT1NbA1c)
+* [De la police, des hommes et des loups. (Grégoire Chamayou) SM#33](https://www.youtube.com/watch?v=LQjJahFp_uw)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
