@@ -39,6 +39,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [On a retrouvé les écrits du gardé à vue pour sabotages à la SNCF](https://www.nouvelobs.com/rue89/rue89-nos-vies-connectees/20081113.RUE6794/on-a-retrouve-les-ecrits-du-garde-a-vue-pour-sabotages-a-la-sncf.html)
 * [Présentation du livre Théorie du Bloom de Tiqqun + parallele avec sa situation a l'univ](https://collectiflieuxcommuns.fr/IMG/pdf_Tiqqun_-_Theorie_du_Bloom.pdf)
 * [A propos du livre de Alain Bihr: Entre bourgeoisie et prolétariat. L'encadrement capitaliste](https://www.persee.fr/doc/homso_0018-4306_1990_num_97_3_2497)
+* [COMMUNIQUE #11 Special Holiday Season Food Issue Rant: Turn Off the Lite! :Hakim Bey, 1985](https://recalcitransient.files.wordpress.com/2019/09/bey_food.pdf)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
@@ -191,6 +192,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
  
 ### Liste de lecture
 * [Zoe Baker : Anarchism Reading List](https://anarchopac.wordpress.com/2013/05/31/recommended-reading/) 
+* [Anarchy 101 : Raddle](https://raddle.me/wiki/Anarchy101)
  
 ### Dérive du pouvoir
 Ceux que l'état tente de réprimer pour avoir élevé la voix ...
