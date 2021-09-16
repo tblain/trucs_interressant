@@ -47,6 +47,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Take What You Need And Compost The Rest: an introduction to post-civilized theory](https://www.youtube.com/watch?v=WcrCv-SiaEs)
 * [Introduction to Mutual Aid by Andrej Grubacic and David Graeber](https://www.youtube.com/watch?v=EfJRQQQhXEY)
 * ["Fascism in a Pinstriped Suit" by Michael Parenti](https://www.youtube.com/watch?v=Yu6QTSnJbFs)
+* [Comité Invisible - Le pouvoir est logistique. Bloquons tout !](https://lundi.am/Comite-Invisible-Le-pouvoir-est-logistique-Bloquons-tout-474)
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
