@@ -40,6 +40,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Présentation du livre Théorie du Bloom de Tiqqun + parallele avec sa situation a l'univ](https://collectiflieuxcommuns.fr/IMG/pdf_Tiqqun_-_Theorie_du_Bloom.pdf)
 * [A propos du livre de Alain Bihr: Entre bourgeoisie et prolétariat. L'encadrement capitaliste](https://www.persee.fr/doc/homso_0018-4306_1990_num_97_3_2497)
 * [COMMUNIQUE #11 Special Holiday Season Food Issue Rant: Turn Off the Lite! :Hakim Bey, 1985](https://recalcitransient.files.wordpress.com/2019/09/bey_food.pdf)
+* [Comité Invisible - Le pouvoir est logistique. Bloquons tout !](https://lundi.am/Comite-Invisible-Le-pouvoir-est-logistique-Bloquons-tout-474)
 * [De quoi le QR code est-il le nom ? - LUNDI MATIN](https://lundi.am/De-quoi-le-QR-code-est-il-le-nom)
 
 ### Podcasts
@@ -48,7 +49,6 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Take What You Need And Compost The Rest: an introduction to post-civilized theory](https://www.youtube.com/watch?v=WcrCv-SiaEs)
 * [Introduction to Mutual Aid by Andrej Grubacic and David Graeber](https://www.youtube.com/watch?v=EfJRQQQhXEY)
 * ["Fascism in a Pinstriped Suit" by Michael Parenti](https://www.youtube.com/watch?v=Yu6QTSnJbFs)
-* [Comité Invisible - Le pouvoir est logistique. Bloquons tout !](https://lundi.am/Comite-Invisible-Le-pouvoir-est-logistique-Bloquons-tout-474)
 
 ### Bouquins
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
