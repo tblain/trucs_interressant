@@ -179,6 +179,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [MCKINSEY : LE CABINET QUI DECIDE DE NOS VIES ? - Le Stagirite](https://www.youtube.com/watch?v=jdybT1NbA1c)
 * [De la police, des hommes et des loups. (Grégoire Chamayou) SM#33](https://www.youtube.com/watch?v=LQjJahFp_uw)
 * [petite histoire de l'école en France - Dixit](https://www.youtube.com/watch?v=KesjendPTC0)
+* [An Economic Hit Man Confesses and Calls to Action | John Perkins | TEDxTraverseCity](https://www.youtube.com/watch?v=btF6nKHo2i0)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
