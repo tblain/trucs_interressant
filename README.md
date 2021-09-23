@@ -42,6 +42,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [COMMUNIQUE #11 Special Holiday Season Food Issue Rant: Turn Off the Lite! :Hakim Bey, 1985](https://recalcitransient.files.wordpress.com/2019/09/bey_food.pdf)
 * [Comité Invisible - Le pouvoir est logistique. Bloquons tout !](https://lundi.am/Comite-Invisible-Le-pouvoir-est-logistique-Bloquons-tout-474)
 * [De quoi le QR code est-il le nom ? - LUNDI MATIN](https://lundi.am/De-quoi-le-QR-code-est-il-le-nom)
+* [Joyful Militancy - Friendship is a root of freedom](https://joyfulmilitancy.com/2017/12/11/friendship-as-a-root-of-freedom/)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
