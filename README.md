@@ -183,6 +183,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [An Economic Hit Man Confesses and Calls to Action | John Perkins | TEDxTraverseCity](https://www.youtube.com/watch?v=btF6nKHo2i0)
 * [Effondrement : seul scénario réaliste ? Par Arthur Keller - S02 E04 - [NEXT]](https://www.youtube.com/watch?v=kLzNPEjHHb8)
 * [Communisme.s. Débat avec Frederic Lordon, Bernard Friot, sociologue et Guillaume Roubaud-Quashie](https://www.youtube.com/watch?v=sytY8KGGgCw)
+* [La Zone hors sujet#3 - La Psychogéographie](https://www.youtube.com/watch?v=qnDk0CF4bCA)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
