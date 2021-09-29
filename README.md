@@ -184,6 +184,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Effondrement : seul scénario réaliste ? Par Arthur Keller - S02 E04 - [NEXT]](https://www.youtube.com/watch?v=kLzNPEjHHb8)
 * [Communisme.s. Débat avec Frederic Lordon, Bernard Friot, sociologue et Guillaume Roubaud-Quashie](https://www.youtube.com/watch?v=sytY8KGGgCw)
 * [La Zone hors sujet#3 - La Psychogéographie](https://www.youtube.com/watch?v=qnDk0CF4bCA)
+* [ABOLISSONS LE TRAVAIL : FRIOT ET LORDON EN SUEUR (PODCAST)](https://www.youtube.com/watch?v=OtQQKU77t_w)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
