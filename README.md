@@ -45,6 +45,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Joyful Militancy - Friendship is a root of freedom](https://joyfulmilitancy.com/2017/12/11/friendship-as-a-root-of-freedom/)
 * [Spread Anarchy, Live Communism - The Invisible Committee](https://illwilleditions.noblogs.org/files/2017/07/Invisible-Committee-Spread-Anarchy-Live-Communism-READ.pdf)
 * [Le Comité invisible et les Communs : pourrons-nous encore être « amis » ? - SILex](https://scinfolex.com/2017/08/31/le-comite-invisible-et-les-communs-pourrons-nous-encore-etre-amis/)
+* [Analyse de Akira : le mouvement politique qui dérange tous les autres](https://www.factuel.info/blog/analyse-de-akira-le-mouvement-politique-qui-derange-tous-les-autres)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
