@@ -46,6 +46,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Spread Anarchy, Live Communism - The Invisible Committee](https://illwilleditions.noblogs.org/files/2017/07/Invisible-Committee-Spread-Anarchy-Live-Communism-READ.pdf)
 * [Le Comité invisible et les Communs : pourrons-nous encore être « amis » ? - SILex](https://scinfolex.com/2017/08/31/le-comite-invisible-et-les-communs-pourrons-nous-encore-etre-amis/)
 * [Analyse de Akira : le mouvement politique qui dérange tous les autres](https://www.factuel.info/blog/analyse-de-akira-le-mouvement-politique-qui-derange-tous-les-autres)
+* [reddit - ACAB means ALL cops, every single cop](https://www.reddit.com/r/ACAB/comments/q27ygh/acab_means_all_cops_every_single_cop/?utm_medium=android_app&utm_source=share)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
