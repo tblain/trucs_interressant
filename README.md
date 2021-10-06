@@ -189,6 +189,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [La Zone hors sujet#3 - La Psychogéographie](https://www.youtube.com/watch?v=qnDk0CF4bCA)
 * [ABOLISSONS LE TRAVAIL : FRIOT ET LORDON EN SUEUR (PODCAST)](https://www.youtube.com/watch?v=OtQQKU77t_w)
 * [Analyse de Akira : le mouvement politique qui dérange tous les autres](https://www.factuel.info/blog/analyse-de-akira-le-mouvement-politique-qui-derange-tous-les-autres)
+* [Nos rêves ne tiennent pas dans les cases... - Barbara Cassin, sur la demarche qualite](https://www.youtube.com/watch?v=S3C-ax_-284&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=99)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
