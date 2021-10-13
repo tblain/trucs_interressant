@@ -193,6 +193,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Analyse de Akira : le mouvement politique qui dérange tous les autres](https://www.factuel.info/blog/analyse-de-akira-le-mouvement-politique-qui-derange-tous-les-autres)
 * [Nos rêves ne tiennent pas dans les cases... - Barbara Cassin, sur la demarche qualite](https://www.youtube.com/watch?v=S3C-ax_-284&list=PLma2BaPR4U28w_fUcPzlPC-8Md-e9h1s3&index=99)
 * [Ces CABINETS qui GOUVERNENT LE MONDE !](https://www.youtube.com/watch?v=PwPmZP5b0jA)
+* [Perdre son temps, c'est la plus merveilleuse façon de le gagner - Bernard Montangero](https://www.youtube.com/watch?v=3hLS9kyYl10)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
