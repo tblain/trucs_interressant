@@ -1,4 +1,4 @@
-https://www.youtube.com/watch?v=LQjJahFp_uw# Trucs Intéressants
+# Trucs Intéressants
 
 Page Web [ici](https://tblain.github.io/trucs_interressant/).
 
