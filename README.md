@@ -195,6 +195,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 * [Ces CABINETS qui GOUVERNENT LE MONDE !](https://www.youtube.com/watch?v=PwPmZP5b0jA)
 * [Perdre son temps, c'est la plus merveilleuse façon de le gagner - Bernard Montangero](https://www.youtube.com/watch?v=3hLS9kyYl10)
 * [PRIX DE L'ÉLECTRICITÉ/GAZ : COMMENT ON A MENTI AUX FRANÇAIS](https://www.youtube.com/watch?v=E4HNrE9CcNE)
+* [Michel Foucault à propos de l'école](https://www.youtube.com/watch?v=VjsHyppHiZM)
 
 #### Covid
 * ["CE GOUVERNEMENT N'A JAMAIS EU DE STRATÉGIE CONTRE LE COVID"](https://www.youtube.com/watch?v=EObk12JQhLg)
