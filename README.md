@@ -5,7 +5,7 @@ Page Web [ici](https://tblain.github.io/trucs_interressant/).
 ## Liste de liens et autres choses intéressantes:
 
 ### Textes cours / Essais
-[textes_cours](textes_cours.md)
+[lien](textes_cours.md)
 
 ### Podcasts
 * [583 Revolutionary Anarcho-Primitivism, by Mark R. Seely](https://immediatism.com/archives/podcast/583-revolutionary-anarcho-primitivism-by-mark-r-seely)
