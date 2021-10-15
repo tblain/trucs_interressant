@@ -1,4 +1,6 @@
-Ici les textes cours / essais
+[Accueil](https://tblain.github.io/trucs_interressant/).
+
+# Textes cours / essais
 
 * https://www.theguardian.com/commentisfree/2016/dec/19/life-without-technology-rejecting-technology
   * Meme auteur https://www.theguardian.com/profile/mark-boyle
