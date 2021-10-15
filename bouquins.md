@@ -1,3 +1,5 @@
+[Accueil](https://tblain.github.io/trucs_interressant/).
+
 # Bouquins
 
 * [Industrial Society and Its Future](https://theanarchistlibrary.org/library/fc-industrial-society-and-its-future)
@@ -9,6 +11,3 @@
 * [L’entraide, l’autre loi de la jungle](https://pabloservigne.com/entraide-2/)
 * [Peter Gelderloos - Anarchy Works](https://theanarchistlibrary.org/library/peter-gelderloos-anarchy-works)
 * [Tiqqun 1](http://data0.eklablog.com/ae-editions/perso/bibliotheque%20-%20pdf/tiqqun%20--1--.pdf)
-
-
-[Accueil](https://tblain.github.io/trucs_interressant/).
