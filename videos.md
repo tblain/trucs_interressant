@@ -130,4 +130,5 @@
 * [Perdre son temps, c'est la plus merveilleuse façon de le gagner - Bernard Montangero](https://www.youtube.com/watch?v=3hLS9kyYl10)
 * [PRIX DE L'ÉLECTRICITÉ/GAZ : COMMENT ON A MENTI AUX FRANÇAIS](https://www.youtube.com/watch?v=E4HNrE9CcNE)
 * [Michel Foucault à propos de l'école](https://www.youtube.com/watch?v=VjsHyppHiZM)
+* [permaculture | IDRISS ABERKANE](https://www.youtube.com/watch?v=6t_aZbKh3Bg)
 
