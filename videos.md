@@ -132,4 +132,4 @@
 * [Michel Foucault à propos de l'école](https://www.youtube.com/watch?v=VjsHyppHiZM)
 * [permaculture | IDRISS ABERKANE](https://www.youtube.com/watch?v=6t_aZbKh3Bg)
 * [La propriété (intellectuelle) c'est du vol - Jack0tte](https://www.youtube.com/watch?v=jhIqrSN3iqQ)
-
+* [NOTRE SYSTÈME FINANCIER VA S'EFFONDRER](https://www.youtube.com/watch?v=BknDh30qnTI)
