@@ -45,3 +45,4 @@
 * [reddit - ACAB means ALL cops, every single cop](https://www.reddit.com/r/ACAB/comments/q27ygh/acab_means_all_cops_every_single_cop/?utm_medium=android_app&utm_source=share)
 * [L'Appel du Comité Invisible (Essai, 2004)](https://www.florian-pennec.net/blog/post/l-appel)
 * [Colin Ward - The Theory of Spontaneous Order(1973)](https://www.panarchy.org/ward/order.html#text1921)
+* [Piotr Kropotkin - L'ordre(1881)](https://www.panarchy.org/kropotkin/ordre.html)
