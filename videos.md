@@ -134,3 +134,4 @@
 * [La propriété (intellectuelle) c'est du vol - Jack0tte](https://www.youtube.com/watch?v=jhIqrSN3iqQ)
 * [NOTRE SYSTÈME FINANCIER VA S'EFFONDRER](https://www.youtube.com/watch?v=BknDh30qnTI)
 * [AurelienBarrau - Le crash planétaire flashé en plein vol](https://www.youtube.com/watch?v=xuCwLQo2MNs)
+* [LE BONAPARTISME - Minutes Rouges](https://www.youtube.com/watch?v=yVDX4-F8Tjw)
