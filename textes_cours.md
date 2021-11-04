@@ -46,3 +46,4 @@
 * [L'Appel du Comité Invisible (Essai, 2004)](https://www.florian-pennec.net/blog/post/l-appel)
 * [Colin Ward - The Theory of Spontaneous Order(1973)](https://www.panarchy.org/ward/order.html#text1921)
 * [Piotr Kropotkin - L'ordre(1881)](https://www.panarchy.org/kropotkin/ordre.html)
+* [I’m A Twenty Year Truck Driver, I Will Tell You Why America’s “Shipping Crisis” Will Not End - Ryan JOHNSON](https://medium.com/@ryan79z28/im-a-twenty-year-truck-driver-i-will-tell-you-why-america-s-shipping-crisis-will-not-end-bbe0ebac6a91)
