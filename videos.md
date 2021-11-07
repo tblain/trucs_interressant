@@ -135,3 +135,6 @@
 * [NOTRE SYSTÈME FINANCIER VA S'EFFONDRER](https://www.youtube.com/watch?v=BknDh30qnTI)
 * [AurelienBarrau - Le crash planétaire flashé en plein vol](https://www.youtube.com/watch?v=xuCwLQo2MNs)
 * [LE BONAPARTISME - Minutes Rouges](https://www.youtube.com/watch?v=yVDX4-F8Tjw)
+* [Compter, gérer, exploiter (avec Matthieu Amiech) - Floraisons](https://floraisons.blog/compter-gerer-exploiter/)
+* [Étouffer dieu et démolir l'État (L'École du chat noir) - Floraisons](https://floraisons.blog/etouffer-dieu-demolir-letat/)
+* [À QUI PROFITENT VRAIMENT LES SONDAGES ? - Le Stagierite](https://www.youtube.com/watch?v=1l4wAOFowag)
