@@ -138,3 +138,4 @@
 * [Compter, gérer, exploiter (avec Matthieu Amiech) - Floraisons](https://floraisons.blog/compter-gerer-exploiter/)
 * [Étouffer dieu et démolir l'État (L'École du chat noir) - Floraisons](https://floraisons.blog/etouffer-dieu-demolir-letat/)
 * [À QUI PROFITENT VRAIMENT LES SONDAGES ? - Le Stagierite](https://www.youtube.com/watch?v=1l4wAOFowag)
+* [SUEZ-VEOLIA : KOHLER ET MACRON AU COEUR D'UNE AFFAIRE D'ÉTAT ? - Le Media](https://www.youtube.com/watch?v=TKkJTncN5S0)
