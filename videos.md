@@ -139,5 +139,6 @@
 * [Étouffer dieu et démolir l'État (L'École du chat noir) - Floraisons](https://floraisons.blog/etouffer-dieu-demolir-letat/)
 * [À QUI PROFITENT VRAIMENT LES SONDAGES ? - Le Stagierite](https://www.youtube.com/watch?v=1l4wAOFowag)
 * [SUEZ-VEOLIA : KOHLER ET MACRON AU COEUR D'UNE AFFAIRE D'ÉTAT ? - Le Media](https://www.youtube.com/watch?v=TKkJTncN5S0)
+* [GUERRE CIVILE EN CENTRAFRIQUE : LA FRANCE COUPABLE ? - Le Media](https://www.youtube.com/watch?v=GJ57RhmHtdg)
 * [FR
-GUERRE CIVILE EN CENTRAFRIQUE : LA FRANCE COUPABLE ? - Le Media](https://www.youtube.com/watch?v=GJ57RhmHtdg)
+Tout comprendre sur l'affaire Mimi Marchand / Sarkozy - Mediapart](https://www.youtube.com/watch?v=TO6XCNmVdaw)
