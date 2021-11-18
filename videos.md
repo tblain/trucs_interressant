@@ -140,5 +140,5 @@
 * [À QUI PROFITENT VRAIMENT LES SONDAGES ? - Le Stagierite](https://www.youtube.com/watch?v=1l4wAOFowag)
 * [SUEZ-VEOLIA : KOHLER ET MACRON AU COEUR D'UNE AFFAIRE D'ÉTAT ? - Le Media](https://www.youtube.com/watch?v=TKkJTncN5S0)
 * [GUERRE CIVILE EN CENTRAFRIQUE : LA FRANCE COUPABLE ? - Le Media](https://www.youtube.com/watch?v=GJ57RhmHtdg)
-* [FR
-Tout comprendre sur l'affaire Mimi Marchand / Sarkozy - Mediapart](https://www.youtube.com/watch?v=TO6XCNmVdaw)
+* [Tout comprendre sur l'affaire Mimi Marchand / Sarkozy - Mediapart](https://www.youtube.com/watch?v=TO6XCNmVdaw)
+* [The Sadism of Class](https://www.youtube.com/watch?v=xsrV2LXP0bY)
