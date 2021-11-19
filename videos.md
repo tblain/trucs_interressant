@@ -142,3 +142,4 @@
 * [GUERRE CIVILE EN CENTRAFRIQUE : LA FRANCE COUPABLE ? - Le Media](https://www.youtube.com/watch?v=GJ57RhmHtdg)
 * [Tout comprendre sur l'affaire Mimi Marchand / Sarkozy - Mediapart](https://www.youtube.com/watch?v=TO6XCNmVdaw)
 * [The Sadism of Class](https://www.youtube.com/watch?v=xsrV2LXP0bY)
+* [Cours de philosophie #3 : introduction à la dialectique - Loic Chatigneau](https://www.youtube.com/watch?v=MuLlsYh2Mm8)
