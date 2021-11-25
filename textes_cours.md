@@ -50,3 +50,4 @@
 * [Anonymous - The False Promise of Green Technology](https://theanarchistlibrary.org/library/anonymous-the-false-promise-of-green-technology)
 * [Max Stirner encore et toujours un dissident, Comment Marx et Nietzsche ont évincé leur collègue Max Stirner et pourquoi il leur a pourtant survécu ](http://www.lsr-projekt.de/poly/frinnuce.html)
 * [Individualist Anarchy - Raddle Me](https://raddle.me/wiki/Individualist_Anarchy)
+* [Declaration de la foret Lacandone - Commandement général de l’EZLN](https://www.medelu.org/Declaration-de-la-foret-Lacandone)
