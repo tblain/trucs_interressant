@@ -143,3 +143,4 @@
 * [Tout comprendre sur l'affaire Mimi Marchand / Sarkozy - Mediapart](https://www.youtube.com/watch?v=TO6XCNmVdaw)
 * [The Sadism of Class](https://www.youtube.com/watch?v=xsrV2LXP0bY)
 * [Cours de philosophie #3 : introduction à la dialectique - Loic Chatigneau](https://www.youtube.com/watch?v=MuLlsYh2Mm8)
+* [Fin du grec et du latin à la fac : la faute aux wokes et islamogauchistes?](https://www.youtube.com/watch?v=pKEB9xvuh0E)
