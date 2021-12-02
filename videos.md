@@ -144,3 +144,4 @@
 * [The Sadism of Class](https://www.youtube.com/watch?v=xsrV2LXP0bY)
 * [Cours de philosophie #3 : introduction à la dialectique - Loic Chatigneau](https://www.youtube.com/watch?v=MuLlsYh2Mm8)
 * [Fin du grec et du latin à la fac : la faute aux wokes et islamogauchistes?](https://www.youtube.com/watch?v=pKEB9xvuh0E)
+* [L' IMPÉRIALISME FRANÇAIS : 100 000 MORTS EN 20 ANS ? (Pourquoi ?) - Juste Wissam](https://www.youtube.com/watch?v=oSUcf_Cmr_E)
