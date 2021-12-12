@@ -146,3 +146,4 @@
 * [Fin du grec et du latin à la fac : la faute aux wokes et islamogauchistes?](https://www.youtube.com/watch?v=pKEB9xvuh0E)
 * [L' IMPÉRIALISME FRANÇAIS : 100 000 MORTS EN 20 ANS ? (Pourquoi ?) - Juste Wissam](https://www.youtube.com/watch?v=oSUcf_Cmr_E)
 * [Faut-il ouvrir plus de squats ?](https://www.youtube.com/watch?v=hCnIVHW3Dxg)
+* [Les GUADELOUPÉEN⸱NE⸱S sont-ils COMPLOTISTES - Canard Refractaire](https://www.youtube.com/watch?v=DNDT-hGE7AQ)
