@@ -150,4 +150,4 @@
 * [Qui va faire la RÉVOLUTION ? #GiletsJaunes #Banlieues #SquatPhilo](https://www.youtube.com/watch?v=1MAdwvoWl6w)
 * [LE DRIAN, ta place est en PRISON ! - Le Canard Refractaire](https://www.youtube.com/watch?v=8xAgojHPvCw)
 * [NIQ** TON PÈRE UBER ! - Le Canard Refractaire](https://www.youtube.com/watch?v=N1UEGIqb6dE)
-* [La liberté se gagne contre l'ordre - Robert Badinter](https://www.youtube.com/watch?v=lrvnOHEchcU)
+* [Robert Badinter pour les libertés et contre le système libéral](https://www.youtube.com/watch?v=vQj6aeakHaU&t=0s)
