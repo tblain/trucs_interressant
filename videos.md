@@ -151,3 +151,4 @@
 * [LE DRIAN, ta place est en PRISON ! - Le Canard Refractaire](https://www.youtube.com/watch?v=8xAgojHPvCw)
 * [NIQ** TON PÈRE UBER ! - Le Canard Refractaire](https://www.youtube.com/watch?v=N1UEGIqb6dE)
 * [Robert Badinter pour les libertés et contre le système libéral](https://www.youtube.com/watch?v=vQj6aeakHaU&t=0s)
+* [Anarcho Syndicalism 101](https://www.youtube.com/watch?v=XN8t-oatFnw)
