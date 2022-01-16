@@ -152,3 +152,4 @@
 * [NIQ** TON PÈRE UBER ! - Le Canard Refractaire](https://www.youtube.com/watch?v=N1UEGIqb6dE)
 * [Robert Badinter pour les libertés et contre le système libéral](https://www.youtube.com/watch?v=vQj6aeakHaU&t=0s)
 * [Anarcho Syndicalism 101](https://www.youtube.com/watch?v=XN8t-oatFnw)
+* [L'origine des inégalités - Psykonnaissance #29](https://www.youtube.com/watch?v=d2LQmnfloNM)
