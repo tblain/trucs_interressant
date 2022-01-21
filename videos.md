@@ -153,3 +153,4 @@
 * [Robert Badinter pour les libertés et contre le système libéral](https://www.youtube.com/watch?v=vQj6aeakHaU&t=0s)
 * [Anarcho Syndicalism 101](https://www.youtube.com/watch?v=XN8t-oatFnw)
 * [L'origine des inégalités - Psykonnaissance #29](https://www.youtube.com/watch?v=d2LQmnfloNM)
+* [clement-duval-je-suis-l-ennemi-de-la-propriete-individuelle](https://fr.theanarchistlibrary.org/library/clement-duval-je-suis-l-ennemi-de-la-propriete-individuelle)
