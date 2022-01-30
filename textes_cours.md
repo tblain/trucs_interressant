@@ -53,3 +53,4 @@
 * [Declaration de la foret Lacandone - Commandement général de l’EZLN](https://www.medelu.org/Declaration-de-la-foret-Lacandone)
 * [Marx et Stirner : d'un désaccord sur la propriété](https://blogs.mediapart.fr/laurent-galley/blog/081212/marx-et-stirner-dun-desaccord-sur-la-propriete-ii)
 * [The art of war: Deleuze, Guattari, Debord and the Israeli Defence Force - Eyal Weizman](https://www.metamute.org/editorial/articles/art-war-deleuze-guattari-debord-and-israeli-defence-force)
+* [La peur du conflit](https://fr.theanarchistlibrary.org/library/la-peur-du-conflit)
