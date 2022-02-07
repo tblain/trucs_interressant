@@ -55,3 +55,4 @@
 * [The art of war: Deleuze, Guattari, Debord and the Israeli Defence Force - Eyal Weizman](https://www.metamute.org/editorial/articles/art-war-deleuze-guattari-debord-and-israeli-defence-force)
 * [La peur du conflit](https://fr.theanarchistlibrary.org/library/la-peur-du-conflit)
 * [Anne Archet - Quatre abandons et une abolition](https://fr.theanarchistlibrary.org/library/anne-archet-quatre-abandons-et-une-abolition)
+* [Renzo Novatore - Faisons sauter la dernière arche !](https://fr.theanarchistlibrary.org/library/renzo-novatore-faisons-sauter-la-derniere-arche)
