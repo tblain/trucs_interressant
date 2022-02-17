@@ -157,3 +157,4 @@
 * [La solution n'est pas l'avant-garde - Jean-Luc Mélenchon](https://www.youtube.com/watch?v=be0KQYQ-Lhk&t=4760s)
 * [L'UE contre la démocratie - olivier berruyer](https://www.youtube.com/watch?v=eN1tcH2GckQ)
 * [Interdit d'interdire - Alain Deneault : de quoi fait-on l'économie ?](https://www.youtube.com/watch?v=RDLcJElfliY)
+* [L'élite ne peut pas collaborer avec le peuple - Nicolas Framont](https://www.youtube.com/watch?v=7mLAe65qsWA)
