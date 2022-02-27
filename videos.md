@@ -158,3 +158,4 @@
 * [L'UE contre la démocratie - olivier berruyer](https://www.youtube.com/watch?v=eN1tcH2GckQ)
 * [Interdit d'interdire - Alain Deneault : de quoi fait-on l'économie ?](https://www.youtube.com/watch?v=RDLcJElfliY)
 * [L'élite ne peut pas collaborer avec le peuple - Nicolas Framont](https://www.youtube.com/watch?v=7mLAe65qsWA)
+* [Ce que ZEMMOUR ne VEUT PAS que vous SACHIEZ ! - Canard Refractaire](https://www.youtube.com/watch?v=O9UvoB6ho24)
