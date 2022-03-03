@@ -159,3 +159,4 @@
 * [Interdit d'interdire - Alain Deneault : de quoi fait-on l'économie ?](https://www.youtube.com/watch?v=RDLcJElfliY)
 * [L'élite ne peut pas collaborer avec le peuple - Nicolas Framont](https://www.youtube.com/watch?v=7mLAe65qsWA)
 * [Ce que ZEMMOUR ne VEUT PAS que vous SACHIEZ ! - Canard Refractaire](https://www.youtube.com/watch?v=O9UvoB6ho24)
+* [Bernard FRIOT, « Quel droit pour tout majeur : revenu de base, contrat de travail ou salaire ? »](https://www.youtube.com/watch?v=fMtM0-VZo9M)
