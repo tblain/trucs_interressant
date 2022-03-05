@@ -57,3 +57,4 @@
 * [Anne Archet - Quatre abandons et une abolition](https://fr.theanarchistlibrary.org/library/anne-archet-quatre-abandons-et-une-abolition)
 * [Renzo Novatore - Faisons sauter la dernière arche !](https://fr.theanarchistlibrary.org/library/renzo-novatore-faisons-sauter-la-derniere-arche)
 * [Éxpropriation, planification, socialisme - NPA](https://poutou2022.org/node/82)
+* [Svein Olav Nyberg - Max Stirner’s Philosophy](https://theanarchistlibrary.org/library/svein-olav-nyberg-max-stirner-s-philosophy)
