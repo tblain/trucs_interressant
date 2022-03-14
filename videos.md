@@ -161,3 +161,4 @@
 * [Ce que ZEMMOUR ne VEUT PAS que vous SACHIEZ ! - Canard Refractaire](https://www.youtube.com/watch?v=O9UvoB6ho24)
 * [Bernard FRIOT, « Quel droit pour tout majeur : revenu de base, contrat de travail ou salaire ? »](https://www.youtube.com/watch?v=fMtM0-VZo9M)
 * [La tyrannie de l'horizontalité - Frédéric Lordon](https://www.youtube.com/watch?v=d0IpPmfiBcQ)
+* ["S’adapter", nouvel horizon du libéralisme ? avec la philosophe Barbara Stiegler](https://www.youtube.com/watch?v=NeBWN9rMKMs)
