@@ -162,3 +162,4 @@
 * [Bernard FRIOT, « Quel droit pour tout majeur : revenu de base, contrat de travail ou salaire ? »](https://www.youtube.com/watch?v=fMtM0-VZo9M)
 * [La tyrannie de l'horizontalité - Frédéric Lordon](https://www.youtube.com/watch?v=d0IpPmfiBcQ)
 * ["S’adapter", nouvel horizon du libéralisme ? avec la philosophe Barbara Stiegler](https://www.youtube.com/watch?v=NeBWN9rMKMs)
+* [ARLETTE LAGUILLER : UNE RÉVOLUTIONNAIRE TRÈS SECRÈTE](https://www.youtube.com/watch?v=K3O36BFA-mU)
