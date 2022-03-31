@@ -165,3 +165,4 @@
 * [ARLETTE LAGUILLER : UNE RÉVOLUTIONNAIRE TRÈS SECRÈTE](https://www.youtube.com/watch?v=K3O36BFA-mU)
 * [IMMOBILIER : POURQUOI IL FAUT EN FINIR AVEC LES PROPRIÉTAIRES !](https://www.youtube.com/watch?v=lLIt_8kOsBA)
 * [USA / CHINE : La guerre du Siècle](https://www.youtube.com/watch?v=8lLdAsYRpr0)
+* (120 milliards pour les producteurs bio non capitaliste - Bernard Friot)[https://www.youtube.com/watch?v=YO_ufz9vQDg]
